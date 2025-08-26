@@ -75,7 +75,7 @@ Le Boiteux, tout joyeux de voir sa demande acceptée, suivit donc le Roi jusqu'a
 	— Voilà-donc une bonne chose de faite. Voyons voir s'il sait se transformer en poisson maintenant.
 Le vilain ronflait encore alors quand elle le traîna dans un tonneau percé, qu'elle envoya dégringoler jusque dans les douves._**
 
-**_La jeune fille ne revit jamais le Boiteux, et vécu une longue vie heureuse. Mais chaque fois qu'elle croisait la fourmi, entendait le faucon, ou apercevait l'image du lion, son cœur flanchait. Et lorsqu'elle devint reine à son tour, elle fit pêcher tous les poissons de la douve, juste au cas où._**
+**_La jeune fille ne revit jamais le Boiteux, et vécu une longue vie heureuse. Bien que chaque fois qu'elle croisait une fourmi, entendait un faucon, ou apercevait l'image d'un lion, son cœur flanchait. Et lorsqu'elle devint reine à son tour, elle fit pêcher tous les poissons de la douve, juste au cas où._**
 
 
 La morale s'il en faut une, c'est de ne pas abuser d'un don qu'on vous fait présent ; et surtout, surtout, de ne pas vous glisser dans un lit qui n'est pas le vôtre sans y être invité.
