@@ -1,4 +1,3 @@
-# linked-blog-starter-md
-These are the markdown files for the [linked-blog-starter](https://github.com/matthewwong525/linked-blog-starter) repository
+# Introduction
 
-Trying out if it works well?
+Ce dossier regroupe un corpus de contes collectés par Félix Arnaudin, entre la fin du XIXe et le début du XXe siècle, dans la Grande-Lande. L'ensemble de ces derniers est glané dans l'ouvrage « Contes populaires de la Grande-Lande, Œuvres complètes I », au Éditions confluences.

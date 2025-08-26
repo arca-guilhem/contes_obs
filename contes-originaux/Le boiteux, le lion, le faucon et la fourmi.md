@@ -27,7 +27,7 @@ La fourmi dit ensuite :
 Le Boiteux repartit. Quand il fut à quelque distance, il se dit : « Essaie, pour voir si c'est vrai ».
 	— Vive lion !
 	— Oh ! comme tu es grand, s'écria le lion. Tu es aussi grand que moi.
-	— Vive homme !fit alors le Boiteux.
+	— Vive homme ! fit alors le Boiteux.
 	— Vive fourmi ! fit-il encore.
 	— Ah ! comme te voilà petit, dit la fourmi. Tu es aussi petit que moi !
 	— Vive homme !
@@ -44,14 +44,14 @@ Le roi se leva et arriva dans la chambre.
 	— Vive fourmi, dit le Boiteux.
 Et il se dissimula dans la laine de la couverture.
 Le roi se mit à chercher dans le lit, dans la ruelle, dans la chambre ; mais il ne trouva rien et 
-s'en alla. À peine fut-il sorti que le Boiteux dit : « Vive homme  », et que la fille du roi se remit à 
+s'en alla. À peine fut-il sorti que le Boiteux dit : « Vive homme », et que la fille du roi se remit à 
 appeler son père pour lui dire que l'homme était encore dans le lit.
 Le roi se leva de nouveau.
 	— Vive fourmi, dit le Boiteux.
 Le roi se remit à chercher partout, dans la ruelle, sous le lit, mais cette fois encore, il ne trouva 
 rien. Fort mécontent, il dit à sa fille :
 	— Si tu m'appelles encore une fois et que je ne trouve rien, je te tue.
-Aussitôt qu'il fut sorti, le Boiteux dit : « Vive homme  ». Mais, quand la fille du roi le sentit 
+Aussitôt qu'il fut sorti, le Boiteux dit : « Vive homme ». Mais, quand la fille du roi le sentit 
 encore dans son lit elle n'osa pas appeler son père, car elle avait grand peur.
 Le Boiteux dit alors :
 	— Ne dis rien, car si tu rappelais le roi, il ne me trouverait pas davantage que les autres fois, et toi, il te tuerait.
