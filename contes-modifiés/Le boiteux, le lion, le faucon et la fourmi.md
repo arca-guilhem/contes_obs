@@ -1,5 +1,4 @@
-Il était une fois un lion, un faucon et une fourmi qui chassaient de compagnie et avaient un 
-mouton à partager. Comme ils étaient dans l'embarras, un boiteux vint à passer par là. Le lion 
+Il était une fois un lion, un faucon et une fourmi qui chassaient de compagnie et avaient un mouton à partager. Comme ils étaient dans l'embarras, un boiteux vint à passer par là. Le lion 
 appela :
 	— Hé ! Boiteux, viens ici, viens.
 Le Boiteux pensa alors : « Si tu y vas, tu es mort. Si tu n'y vas pas, c'est la même chose. Bah ! 
