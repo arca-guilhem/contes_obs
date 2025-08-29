@@ -1,3 +1,5 @@
+[p16-26]
+
 Il était une fois un lion, un faucon et une fourmi qui chassaient de compagnie et avaient un 
 mouton à partager. Comme ils étaient dans l'embarras, un boiteux vint à passer par là. Le lion 
 appela :
