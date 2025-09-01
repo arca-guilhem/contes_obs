@@ -3,7 +3,7 @@
 1. La forgeronne est miséreuse, son fils va à l'école
 2. Elle accueille quelqu'un qui est en + mauvaise situation, alors que son voisin le bourgmestre n'en fait rien
 3. C'est une entité puissante bienveillante qui la récompense
-	1. inspirer les récompenses des chiens du conte de la bête à 7 têtes ?
+	1. inspirer les récompenses des chiens du conte de la bête à 7 têtes ? (l'un s'appelle Brise-fer et sa mâchoire peut rompre le fer, l'autre s'appelle Passe-Partout et peut se faufiler partout)
 4. La forgeronne fait des choix mesurés, et humbles ; là où son fils l'exhorte de demander la richesse
 5. Le lendemain, elle voit son voisin le bourgmestre passer un marché avec une entité maléfique qui la récompense de richesse
 6. 5 ans + tard, l'entité maléfique revient

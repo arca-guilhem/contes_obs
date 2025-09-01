@@ -1,0 +1,3 @@
+issu de "Le passé de Callen, son Histoire, sa Culture, sa Vie associative"
+
+"Dans les années 1840, durant l'hiver, on a retrouvé une vieille dame morte dans le fossé du chemin qui venait de Luxey et passait au lieu-dit Traouquebert, lieu de l'actuel bourg de Callen. Après renseignements, il s'est avéré que cette vieille femme était originaire de Luxey et avait quitté sa famille pour partir mendier, car elle était une bouche de trop à nourrir"
