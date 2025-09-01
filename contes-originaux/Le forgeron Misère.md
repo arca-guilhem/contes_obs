@@ -52,7 +52,7 @@ Au bout de quelques jours, un homme que Misère n'avait jamais vu se présenta c
 	– J'accepte, dit Misère.
 Et sitôt qu'il eut prononcé ces mots, le diable disparut de devant lui.
 À partir de ce jour, Misère, ayant de l'argent à n'en savoir que faire, n'eut plus d'autre souci que de se dédommager de tout ce qu'il avait souffert jusque-là. Il se donna du bon temps et mena bonne vie, ne se privant de rien, courant de fête en fête, si bien qu'il n'y en avait pas un plus heureux et plus aise à vingt lieues à la ronde.
-Et quand il eut vécu dix années de la sorte, un beau matin le diable reparut devant lui', et lui 
+Et quand il eut vécu dix années de la sorte, un beau matin le diable reparut devant lui, et lui 
 dit, en passant le seuil du logis :
 	– Eh bien ! mon garçon, es-tu prêt ? J'ai tenu parole, il faut tenir la tienne. C'est aujourd'hui 
 le terme.

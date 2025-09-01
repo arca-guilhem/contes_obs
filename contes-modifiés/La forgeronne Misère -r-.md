@@ -1,6 +1,61 @@
+## Rédaction
+
+Il y avait une fois une forgeronne qui s'appelait Misère. Elle était pauvre, pauvre comme le chat du 
+juge ! si pauvre, que pour arriver à vivre elle était parfois forcée d'envoyer son fils mendier, à 
+défaut d'aller à l'école, faute de pain à la maison. Un soir d'hiver que Misère était assise au coin de son feu, attendant que le maigre souper finisse de mijoter, un vieux mendiant tout déguenillé vint heurter à la porte en disant :
+	– Pour l'amour de Dieu, braves âmes, ne me donneriez-vous pas un peu de place à votre foyer, pour passer la nuit, avec un morcelet de pain, sans vous priver ?
+	– Entrez, pauvre homme, entrez, répondit aussitôt Misère, nous ferons toujours comme nous 
+pourrons.
+Jean, son fils, n'était pas content ; il grondait entre ses dents :
+	– Vois-donc mère ! Ne sommes-nous pas assez misérables ? Je m'en doit aller mendier du pain de côté et d'autre, et maintenant l'on va héberger les passants !
+	– Bah ! répondit Misère, il faut avoir compassion. Quelques bouchées de plus ou de moins, 
+que veux-tu que ce soit ! Apporte donc le peu qu'il y a. Et elle dit au mendiant :
+	– Vous savez, celui qui est pauvre n'est pas riche. Il n'y aura pas grand'chose à mettre avec le 
+pain, mais nous partagerons de bon cœur. Approchez-vous de l'âtre, vous êtes tout transi.
+Et elle le fit asseoir, jeta quelques bûchettes au feu, et quand le vieillard se fut bien réchauffé, elle le fit mettre à table à son côté sur l'escabelle, lui disant de manger, qu'il ne se privât point. Puis, quand ils eurent passé un moment à deviser, l'heure d'aller dormir arriva, la forgeronne et son fils dressèrent pour le pauvre homme une couche auprès du feu, de quoi passer la nuit aussi bien qu'il se pût, et il s'y étendit.
+Le lendemain matin, dès qu'il fit jour, le mendiant se leva et prit son bâton pour partir, mais au moment de passer le seuil, il dit à Misère :
+	– Misère, hier soir, avant de venir ici, j'allai frapper à la porte de ton riche voisin, le bourgmestre, mais il me repoussa sans me faire l'aumône ; toi, au contraire, qui as tant de mal à vivre, tu as été compatissante : tu ne le regretteras pas, car je suis le bon Dieu, et pour prix de cette bonne œuvre, je te permets de me demander trois choses. Quelles qu'elles soient, tu les auras.
+Alors Jean dit tout bas à Misère, en la poussant du coude :
+	– Mère, demande la richesse. Nous sommes si pauvres ! Que nous puissions au moins nous reposer les fin de semaines, et laisser après nous la misère !
+	– Laisse-moi réfléchir, répondit Misère.
+Et quand elle eut réfléchi un moment, elle dit au bon Dieu :
+	– L'on est bien seuls Jean et moi, un ami nous serait le bienvenu. Je souhaiterai un chien fidèle, qui puisse nous accompagner à jamais.
+Jean, entendant cela, pestait entre cuir et chair. Il dit à voix basse :
+	– Quelle folie ! Nous sommes pauvres à jeter, qu'allons nous faire d'un chien ? On ne pourra pas même le nourrir ! Ne te valait-il pas mieux demander la richesse ?
+	– C'est à moi de répondre, dit Misère, je demande ce qu'il me plaît.
+Et elle réfléchit encore un moment et dit au bon Dieu :
+	– Je ne souhaite pas que le chien se sente seul et malheureux. Alors, je voudrais un autre chien qui lui tienne compagnie, et qui soie capable de nous défendre tous. 
+Pour le coup, le gosse ne tenait plus en place, et tirait la manche de sa mère.
+	– C'est à moi de répondre, dit Misère, je le fais comme il me convient.
+	– Mais à présent du moins, fais-nous donner la richesse, reprit Jean ; il ne te reste plus 
+qu'une chose à demander.
+Quand elle eut réfléchi de nouveau, Misère sorti d'un coffret un vieux livre détruit par le temps :
+	– Je ne sais pas lire, mais qu'il n'en soit pas ainsi pour mon fils. Je voudrais qu'il sache lire, à l'instant, et que dans ce livre lui apparaisse la vérité.
+	– Ce sera comme tu l'as désiré, dit le bon Dieu. Tu auras un premier chien, Passe-Partout. Comme son nom l'indique, il peut se faufiler partout, ainsi il te suivra comme bon te semble, et te sera fidèle jusqu'au dernier souffle. Ensuite, tu auras aussi un second chien, Brise-Fer, et ce dernier accompagnera le premier, et saura vous défendre de ses crocs si puissants qu'ils briseront le fer. Enfin, Jean ton fils saura la lecture, et dans ce livre-là, il trouvera la vérité qu'il cherche. Adichats, Misère.
+Et il s'en alla. Et le fils secoua la tête en pensant à la vie de seigneur qui lui passait sous le nez. Misère le laissa se renfrogner et se mit à son travail.
+Au bout de quelques jours, alors qu'elle travaillait le fer devant sa porte, un homme costumé et apprêté que Misère n'avait jamais vu se présenta chez le bourgmestre son voisin. N'y faisant pas plus attention, elle se remit à son ouvrage quand soudain surgit un éclat de lumière rouge au travers des fenêtres entrouvertes de la maison d'en face. Après quoi le curieux bonhomme sortit en serrant la main de son voisin, qui lui, semblait heureux comme tout.
+
+Et les lunes passèrent. Misère continuait de travailler durement, son fils aussi. Il continuait d'aller à l'école pour apprendre, et prenait grand soin de son livre ; il devait cependant encore aller mendier la fin de semaine venue. Malgré tout le travail de Misère, la vie allait de mal en pis. La bourgade se dépérissait : les affaires communes n'étaient plus traitées, les émissaires du seigneur n'étaient plus vus, et le bourgmestre non plus.
+
+Cinq années plus tard, jour pour jour, l'étrange homme réapparu à la maison d'en face. En sortit le bourgmestre, qui se faisait si rare que personne à son office n'aurait su dire la dernière fois qu'il y était venu. Misère, continuant son œuvre, tendit alors l'œil et l'oreille : 
+	– Allons Diable, dit le bourgmestre, puisque tu es si résolu, laisse-moi seulement mettre un peu d'ordre à mes affaires, et je viens avec toi. Tiens, voilà un siège, assieds-toi un instant pendant que je m'apprête.
+Les chiens jouant dans la cour et aboyant à un quelconque écureuil empêchèrent Misère d'entendre la suite, mais au bout d'un moment :
+	– Hé ! dit le Diable, qu'est-ce donc ceci, à présent ? Je ne peux pas me détacher de ce siège. 
+	– C'est drôle tout de même, dit le bourgmestre. Attends un peu, que je t'aide.
+En suivant cela, l'on entendit le diable beugler comme un bœuf, en demandant pardon et grâce. Mais le voisin n'écoutait rien, il frappait comme le sourd qu'il était ; un coup n'attendait pas l'autre. Il répliqua quelques secondes plus tard, quand il fut hors d'haleine :
+	– Tu ne sortiras pas de là, fils de garce, que tu ne m'aies promis de me laisser vivre en paix pendant cinq ans encore, et de me donner de l'or et de l'argent à mon souhait, comme tu l'as fait jusqu'ici.
+	– Ainsi soit-il ! cria le diable, lâche-moi !
+	– Et parce que je le mérite bien, moi qui travaille si dur, tu me feras intendant du seigneur.
+	– Je te le promets ! Je te le promets ! hurla le diable, maintenant lâche-moi bien vite !
+Et le bourgmestre le délivra.
+Furieux comme tout, le Diable en sortant de la maison décida de se passer les nerfs sur quelque chose. Malheureusement pour Misère ce fût son atelier. Le vilain brûlait son soufflet et avant qu'il puisse ne faire plus de dégâts, elle siffla les chiens qui rappliquèrent :
+	– Brise-Fer, attaque ! Débarrasse nous de cette vermine !
+Le chien ne s'y reprit pas à deux fois, et, de nouveau humilié, le Diable s'en repartit en hurlant au martyr.
+
+
 ## Plan
 
-1. La forgeronne est miséreuse, son fils va à l'école
+1. La forgeronne est miséreuse, son fils Jean va à l'école
 2. Elle accueille quelqu'un qui est en + mauvaise situation, alors que son voisin le bourgmestre n'en fait rien
 3. C'est une entité puissante bienveillante qui la récompense
 	1. inspirer les récompenses des chiens du conte de la bête à 7 têtes ? (l'un s'appelle Brise-fer et sa mâchoire peut rompre le fer, l'autre s'appelle Passe-Partout et peut se faufiler partout)
@@ -20,7 +75,7 @@
 
 Change le genre de la protagoniste et enlève la compagne dépeinte comme hystérique et vénale
 
-Change la morale de l'histoire où le forgeron après avoir été vertueux, devient beaucoup plus gris, en utilisant des techniques mauvaises contre le mal, et en étant récompensé.
+Change la morale de l'histoire où la forgeronne après avoir été vertueux, devient beaucoup plus gris, en utilisant des techniques mauvaises contre le mal, et en étant récompensé.
 
 Reprend cette idée de se jouer du mal, mais l'attribue à un personnage en situation de pouvoir pour créer un parallèle contemporain.
 
