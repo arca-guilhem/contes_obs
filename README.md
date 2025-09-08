@@ -8,3 +8,4 @@ Ce dossier regroupe un corpus de contes collectés par Félix Arnaudin, entre la
 - [OCR Online](https://www.onlineocr.net/fr/)
 
 Guilhem was here :)
+Pauline was here !!!!!
