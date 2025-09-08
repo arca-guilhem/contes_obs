@@ -6,3 +6,5 @@ Ce dossier regroupe un corpus de contes collectés par Félix Arnaudin, entre la
 # Outils employés
 
 - [OCR Online](https://www.onlineocr.net/fr/)
+
+Guilhem was here :)
