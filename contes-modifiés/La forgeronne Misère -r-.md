@@ -33,6 +33,7 @@ Quand elle eut réfléchi de nouveau, Misère sorti d'un coffret un vieux livre 
 	– Je ne sais pas lire, mais qu'il n'en soit pas ainsi pour mon fils. Je voudrais qu'il sache lire, à l'instant, et que dans ce livre lui apparaisse la vérité.
 	– Ce sera comme tu l'as désiré, dit le bon Dieu. Tu auras un premier chien, Passe-Partout. Comme son nom l'indique, il peut se faufiler partout, ainsi il te suivra comme bon te semble, et te sera fidèle jusqu'au dernier souffle. Ensuite, tu auras aussi un second chien, Brise-Fer, et ce dernier accompagnera le premier, et saura vous défendre de ses crocs si puissants qu'ils briseront le fer. Enfin, Jean ton fils saura la lecture, et dans ce livre-là, il trouvera la vérité qu'il cherche. Adichats, Misère.
 Et il s'en alla. Et le fils secoua la tête en pensant à la vie de seigneur qui lui passait sous le nez. Misère le laissa se renfrogner et se mit à son travail.
+
 Au bout de quelques jours, alors qu'elle travaillait le fer devant sa porte, un homme costumé et apprêté que Misère n'avait jamais vu se présenta chez le bourgmestre son voisin. N'y faisant pas plus attention, elle se remit à son ouvrage quand soudain surgit un éclat de lumière rouge au travers des fenêtres entrouvertes de la maison d'en face. Après quoi le curieux bonhomme sortit en serrant la main de son voisin, qui lui, semblait heureux comme tout.
 
 Et les lunes passèrent. Misère continuait de travailler durement, son fils aussi. Il continuait d'aller à l'école pour apprendre, et prenait grand soin de son livre ; il devait cependant encore aller mendier la fin de semaine venue. Malgré tout le travail de Misère, la vie allait de mal en pis. La bourgade se dépérissait : les affaires communes n'étaient plus traitées, les émissaires du seigneur n'étaient plus vus, et le bourgmestre non plus.
@@ -51,6 +52,27 @@ Et le bourgmestre le délivra.
 Furieux comme tout, le Diable en sortant de la maison décida de se passer les nerfs sur quelque chose. Malheureusement pour Misère ce fût son atelier. Le vilain brûlait son soufflet et avant qu'il puisse ne faire plus de dégâts, elle siffla les chiens qui rappliquèrent :
 	– Brise-Fer, attaque ! Débarrasse nous de cette vermine !
 Le chien ne s'y reprit pas à deux fois, et, de nouveau humilié, le Diable s'en repartit en hurlant au martyr.
+
+Cinq années encore passèrent ; Misère avait réussi à réparer son soufflet ; Jean grandissait et continuait d'aller à l'école pour apprendre. La forgeronne travaillait durement du lever jusqu'au coucher du soleil, parfois plus. Les jours devenaient pénibles, son dos commençait à la faire souffrir, mais elle ne se plaignait pas. À cause du bourgmestre/intendant, son voisin bon-à-rien, le bourg se dépérissait encore plus. Les routes d'antan redevenaient pistes, les festivités s'amaigrissaient, les voyageurs contournaient le village, et les commerces fermaient. « Heureusement qu'il reste l'école » se disait Misère.
+
+Alors qu'elle martelait derrière l'enclume, elle vit un nuage de poussière se rapprocher, cachant le soleil couchant.
+	– Intendant, je suis là pour vous escorter ! Suivez moi gentiment, où mes porcelets vous prendront, dit le diable.
+	– Pas besoin de hurler mon brave, laissez moi sortir de ma robe de chambre et me changer en quelque chose de plus adéquat. Pendant ce temps, grignotez-donc ! J'ai ce magnifique pommier, je n'en aurai guère besoin là où je vais alors videz-le. Ses pommes sont délicieuses.
+	– N'allez pas me faire prier et ramenez m'en, dit-il à ses suivants. Je le garde à l'œil.
+Et les porcelets ne se firent pas prier, ils secouèrent tellement le pommier qu'ils le renversèrent, écrasant une partie de la barrière de Misère. Elle alla constater les dégâts, et avant qu'elle n'aie eu le temps de traverser le chemin pour toucher deux mots aux voisins, elle tombait nez-à-nez avec la troupe de porcelets au sol, le diable au milieu.
+	– Tiens donc, vous vous êtes trop gavés, idiots. Maintenant que votre panse est bien pleine, je vais vous fouetter et l'on verra si certains d'entre vous savent danser, ricana l'intendant.
+Et crac, crac et crac ! Le fouet claquait, encore et encore.
+	– Toi, forgeronne, va voir ailleurs si j'y suis ! Crac ! Et quant à toi, malheureux, que je ne te revoie pas avec ta cohorte porcine de sitôt.
+	– Oui, oui, entendu ! gémit le vilain. Mais par pitié arrête de me fouetter !
+	– Pas avant que tu ne m'aies promis de me faire seigneur à la place du seigneur, et que tu me laisses tranquille pour cinq ans encore ! Crac ! 
+	– Ainsi soit-il, maintenant par pitié arrête !
+	– Ce n'est pas fini. Crac ! Tu feras de cette maison un château, et que mon office resplendisse de la lueur de 40.000 écus.
+Le diable claqua des doigts, et tout à coup un château s'élevait derrière le nouveau seigneur ; après quoi il s'arrêta de fouetter.
+
+Meurtri et de nouveau humilié, il déploya ses ailes et s'envola suivi de ses porcelets. Seulement voilà, ils étaient tellement alourdis que, épuisés par le vol, ils s'écrasèrent dans la bourgade, détruisant l'école au passage.
+
+*Passe-partout accourt avec Jean sur son dos, et le carnet dans la mâchoire.
+Misère se met à comploter pour l'année d'après.*
 
 
 ## Plan
