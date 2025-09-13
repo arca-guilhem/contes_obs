@@ -1,3 +1,52 @@
+
+## Le conte
+
+
+Il y avait une fois un homme qui était très pauvre, il devait bientôt marier sa fille et il était fort embarrassé. Il avait besoin d'argent pour faire les frais de la noce et il n'avait pas un sou en poche. Un soir qu'il s'en revenait de la scierie, il rencontre un homme qui l'attendait à la croisée des chemins. Et cet homme était le diable.
+ 	– Bonjour, monsieur, dit le pauvre homme.
+ 	– Bonjour, mon brave. Eh ! tu as l'air bien ennuyé.
+ 	– Oh ! oui, je le suis bien. J'ai ma fille qui va bientôt se marier, et je n'ai pas un sou pour faire quelque peu la fête le jour de la noce.
+ 	– Quand la maries-tu, ta fille ?
+ 	– D'aujourd'hui en vingt jours.
+ 	– Eh bien ! Si tu veux me donner la première chose que tu feras passer sur le pont du Naou ce jour-là, moi, je te donnerai tout l'argent que tu voudras.
+ 
+L'homme se prend à rêver : « Mais que feras-tu donc passer ce jour-là sur le pont du Naou ? … »
+ 
+Mais le besoin commandait et il accepta le marché. Alors, le diable lui donna un sac d'écus si pesant qu'à peine il pouvait le porter sur les épaules. L'homme s'en revint chez lui bien content. Ceux de sa famille firent de grandes invitations et préparèrent une belle noce.
+
+Quelques jours avant la noce, l'homme revient de chez le boucher, et à la même croisée des chemins, entre Luxey et Sore, il croise une vieille dame effondrée dans le fossé. Elle avait la mine grisâtre, alors il la ramène chez lui, au coin du feu pour qu'elle puisse reprendre des forces. Ils la font souper, et le lendemain matin, la vieille dame remercie l'homme en lui promettant :
+ 	– Ce soir, je reviendrai vous faire un cadeau, il vous portera le bonheur.
+Et c'est ce qu'elle fit. Avant le coucher du soleil, elle arrivait avec un chat noir comme la nuit, et elle le luit tendit.
+  	– Il s'appelle Mandragot. Pensez à bien le nourrir, c'est important, et prenez soin de lui, il est craintif. Cela à part, c'est un brave animal, vous verrez demain, vous serez tout heureux !
+Alors l'homme accepte ; un chat, se disait-il, pourquoi pas ?
+
+Vint l'heure du dîner, où il nourrit bien le chat. Puis il alla se coucher sans trouver le sommeil. Qu'allait-il bien passer en premier sur le pont du Naou ?
+
+Au petit matin, il se levait pour effectuer les derniers préparatifs quand il trébucha sur le chat qui dormait en boule, avec à ses pieds une bourse remplie d'écus !
+
+Une bien belle nouvelle, la vieille dame devait avoir raison. Il lui donna à manger et parti faire ses affaires. Puis vint le soir, rebelotte et il ne trouve toujours pas le sommeil. Qu'allait-il bien passer en premier sur le pont du Naou ?
+
+Le lendemain matin, jour de la noce, tous partirent pour l'église. Le père, qui était resté à la maison pour nourrir le chat trouvait cette fois-ci le chat sous son lit. De nouveau une bourse remplie d'or devant lui ! Par deux fois de suite, c'en devenait curieux …
+
+Puis il se souvint subitement de la demande du diable : il n'avait jamais pensé que sa fille, pour se rendre à l'église devait passer sur le pont du Naou. Sa fille était donc bien la première chose qu'il devait faire passer ce jour-là sur le pont. À demi-mort de peur à cette pensée, l'homme se précipita sans même fermer la porte, courant à s'en briser l'échine pour sauver sa fille.
+
+ Il rejoignit les gens de la noce au moment où ils allaient arriver au pont. En chemin, l'idée lui était venue : il lancerait un caillou, et le diable n'aurait qu'à se faire voir ailleurs ! Il jubilait à l'idée, et alors qu'il se penchait pour attraper un caillou, fiout ! un trait noir passe devant lui, poursuivi par un renard. Le pauvre chat avait dû trouver la porte, et il se dirigeait droit vers l'autre rive du Naou !
+
+Alors l'homme attrape un caillou et le lance aussi fort qu'il pût de l'autre côté, mais il était trop tard. Le chat avait été plus rapide, et le diable lorgnait moqueur le long de l'eau. 
+ 	– Tu m'as bien dupé, hein ! cria-t-il, fou de rage.
+POC ! fit le caillou.
+Et le diable s'enfuit par la forêt, et jamais on ne le revit par ici.
+
+___
+
+S'il vous faut des morales, ce serait d'abord de ne pas faire de promesses en l'air. Ensuite de ne pas traiter avec de puissantes ordures. Et enfin, si ça vous est arrivé, c'est de bien penser à leur jeter quelques cailloux au passage !
+
+
+___
+
+
+## Notes de rédaction 
+
 1. Le conte original, mais tout pareil, sauf :
 2. Entre-temps, l'Homme aide une vieille dame qui lui offre un chat noir comme la nuit l'avant-veille des noces
 3. L'homme le nourrit et va dormir.
