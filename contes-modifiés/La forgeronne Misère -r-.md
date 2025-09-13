@@ -1,17 +1,12 @@
 ## Rédaction
 
-Il y avait une fois une forgeronne qui s'appelait Misère. Elle était pauvre, pauvre comme le chat du 
-juge ! si pauvre, que pour arriver à vivre elle était parfois forcée d'envoyer son fils mendier, à 
-défaut d'aller à l'école, faute de pain à la maison. Un soir d'hiver que Misère était assise au coin de son feu, attendant que le maigre souper finisse de mijoter, un vieux mendiant tout déguenillé vint heurter à la porte en disant :
+Il y avait une fois une forgeronne qui s'appelait Misère. Elle était pauvre, pauvre comme le chat du juge ! si pauvre, que pour arriver à vivre elle était parfois forcée d'envoyer son fils mendier, à défaut d'aller à l'école, faute de pain à la maison. Un soir d'hiver que Misère était assise au coin de son feu, attendant que le maigre souper finisse de mijoter, un vieux mendiant tout déguenillé vint heurter à la porte en disant :
 	– Pour l'amour de Dieu, braves âmes, ne me donneriez-vous pas un peu de place à votre foyer, pour passer la nuit, avec un morcelet de pain, sans vous priver ?
-	– Entrez, pauvre homme, entrez, répondit aussitôt Misère, nous ferons toujours comme nous 
-pourrons.
+	– Entrez, pauvre homme, entrez, répondit aussitôt Misère, nous ferons toujours comme nous pourrons.
 Jean, son fils, n'était pas content ; il grondait entre ses dents :
 	– Vois-donc mère ! Ne sommes-nous pas assez misérables ? Je m'en doit aller mendier du pain de côté et d'autre, et maintenant l'on va héberger les passants !
-	– Bah ! répondit Misère, il faut avoir compassion. Quelques bouchées de plus ou de moins, 
-que veux-tu que ce soit ! Apporte donc le peu qu'il y a. Et elle dit au mendiant :
-	– Vous savez, celui qui est pauvre n'est pas riche. Il n'y aura pas grand'chose à mettre avec le 
-pain, mais nous partagerons de bon cœur. Approchez-vous de l'âtre, vous êtes tout transi.
+	– Bah ! répondit Misère, il faut avoir compassion. Quelques bouchées de plus ou de moins, que veux-tu que ce soit ! Apporte donc le peu qu'il y a. Et elle dit au mendiant :
+	– Vous savez, celui qui est pauvre n'est pas riche. Il n'y aura pas grand'chose à mettre avec le pain, mais nous partagerons de bon cœur. Approchez-vous de l'âtre, vous êtes tout transi.
 Et elle le fit asseoir, jeta quelques bûchettes au feu, et quand le vieillard se fut bien réchauffé, elle le fit mettre à table à son côté sur l'escabelle, lui disant de manger, qu'il ne se privât point. Puis, quand ils eurent passé un moment à deviser, l'heure d'aller dormir arriva, la forgeronne et son fils dressèrent pour le pauvre homme une couche auprès du feu, de quoi passer la nuit aussi bien qu'il se pût, et il s'y étendit.
 Le lendemain matin, dès qu'il fit jour, le mendiant se leva et prit son bâton pour partir, mais au moment de passer le seuil, il dit à Misère :
 	– Misère, hier soir, avant de venir ici, j'allai frapper à la porte de ton riche voisin, le bourgmestre, mais il me repoussa sans me faire l'aumône ; toi, au contraire, qui as tant de mal à vivre, tu as été compatissante : tu ne le regretteras pas, car je suis le bon Dieu, et pour prix de cette bonne œuvre, je te permets de me demander trois choses. Quelles qu'elles soient, tu les auras.
@@ -27,11 +22,11 @@ Et elle réfléchit encore un moment et dit au bon Dieu :
 	– Je ne souhaite pas que le chien se sente seul et malheureux. Alors, je voudrais un autre chien qui lui tienne compagnie, et qui soie capable de nous défendre tous. 
 Pour le coup, le gosse ne tenait plus en place, et tirait la manche de sa mère.
 	– C'est à moi de répondre, dit Misère, je le fais comme il me convient.
-	– Mais à présent du moins, fais-nous donner la richesse, reprit Jean ; il ne te reste plus 
-qu'une chose à demander.
+	– Mais à présent du moins, fais-nous donner la richesse, reprit Jean ; il ne te reste plus qu'une chose à demander.
 Quand elle eut réfléchi de nouveau, Misère sorti d'un coffret un vieux livre détruit par le temps :
 	– Je ne sais pas lire, mais qu'il n'en soit pas ainsi pour mon fils. Je voudrais qu'il sache lire, à l'instant, et que dans ce livre lui apparaisse la vérité.
 	– Ce sera comme tu l'as désiré, dit le bon Dieu. Tu auras un premier chien, Passe-Partout. Comme son nom l'indique, il peut se faufiler partout, ainsi il te suivra comme bon te semble, et te sera fidèle jusqu'au dernier souffle. Ensuite, tu auras aussi un second chien, Brise-Fer, et ce dernier accompagnera le premier, et saura vous défendre de ses crocs si puissants qu'ils briseront le fer. Enfin, Jean ton fils saura la lecture, et dans ce livre-là, il trouvera la vérité qu'il cherche. Adichats, Misère.
+
 Et il s'en alla. Et le fils secoua la tête en pensant à la vie de seigneur qui lui passait sous le nez. Misère le laissa se renfrogner et se mit à son travail.
 
 Au bout de quelques jours, alors qu'elle travaillait le fer devant sa porte, un homme costumé et apprêté que Misère n'avait jamais vu se présenta chez le bourgmestre son voisin. N'y faisant pas plus attention, elle se remit à son ouvrage quand soudain surgit un éclat de lumière rouge au travers des fenêtres entrouvertes de la maison d'en face. Après quoi le curieux bonhomme sortit en serrant la main de son voisin, qui lui, semblait heureux comme tout.
@@ -145,12 +140,15 @@ Chacun reprit ainsi sa vie, tel qu'annoncé par Jean. Le bourg fût réparé, ma
 
 Change le genre de la protagoniste et enlève la compagne dépeinte comme hystérique et vénale
 
-Change la morale de l'histoire où la forgeronne après avoir été vertueux, devient beaucoup plus gris, en utilisant des techniques mauvaises contre le mal, et en étant récompensé.
+Change la morale de l'histoire où la forgeronne après avoir été vertueuse, devient beaucoup plus grise, en utilisant des techniques mauvaises contre le mal, et en étant récompensé.
 
 Reprend cette idée de se jouer du mal, mais l'attribue à un personnage en situation de pouvoir pour créer un parallèle contemporain.
+
+Petit clin d'œil à Bayrou
 
 Le mal fait finit par être puni et réparé.
 
 Rajout de problématiques issues de Callen :
-	pont inaccessible (comme à l'ancien bourg en hiver, où très récemment vers Sore)
-	école lointaine et déplacement de la famille (comme à l'ancien bourg)
+	mort passée du village
+	école lointaine et déplacement des familles (comme à l'ancien bourg)
+	inondations par le bas (c'est la faute du diable en réalité)

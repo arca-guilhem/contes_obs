@@ -1,10 +1,3 @@
-## Plan
-
-1. Le rossignol est piégé
-2. Des gemmeurs viennent le libérer en espérant l'entendre chanter
-3. Une fois libéré, il s'envole sans chanter mais en piaillant merci
-4. C'est pas si mal que ça aussi
-
 ## Conte
 
 Une nuit du mois de mai, il y a bien longtemps, le rossignol était resté fort tard à chanter en lisière de forêt. Si bien qu'il s'endormit là, sur la plus basse branche d'un pin. Et, tandis qu'il dormait, la résine du pin avait coulé, emprisonnant ses pattes. Au matin, quand il se réveilla, il se trouva prisonnier. Déjà les fourmis arrivaient et allaient le dévorer tout vif.
@@ -17,3 +10,22 @@ Alors le premier planta le pitey dans le sable, et le second se saisit de l'hapc
 Et s'envola, pour repartir chanter ailleurs.
 	– Eh bien, je m'attendais à mieux ! Et toi ?
 	– Pas sûr, il nous a fait un cadeau plus beau encore.
+
+___
+
+Une morale ? Pourquoi pas ma foi !
+Tiens, tenez celle-ci : aidez pour la noblesse de l'acte, non pas celle de la récompense, vous en vivrez bien plus heureux.
+
+(gemmeurs : ceux qui récoltaient la sève des pins)
+(pitey : espèce d'échelle à jambe unique qui était utilisée par les gemmeurs)
+(hapchot : outil pour inciser l'écorce du pin)
+
+
+___
+
+## Plan
+
+1. Le rossignol est piégé
+2. Des gemmeurs viennent le libérer en espérant l'entendre chanter
+3. Une fois libéré, il s'envole sans chanter mais en piaillant merci
+4. C'est pas si mal que ça aussi

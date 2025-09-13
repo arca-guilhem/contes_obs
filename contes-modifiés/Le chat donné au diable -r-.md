@@ -1,7 +1,4 @@
 
-## Le conte
-
-
 Il y avait une fois un homme qui était très pauvre, il devait bientôt marier sa fille et il était fort embarrassé. Il avait besoin d'argent pour faire les frais de la noce et il n'avait pas un sou en poche. Un soir qu'il s'en revenait de la scierie, il rencontre un homme qui l'attendait à la croisée des chemins. Et cet homme était le diable.
  	– Bonjour, monsieur, dit le pauvre homme.
  	– Bonjour, mon brave. Eh ! tu as l'air bien ennuyé.
@@ -32,7 +29,7 @@ Puis il se souvint subitement de la demande du diable : il n'avait jamais pensé
 
  Il rejoignit les gens de la noce au moment où ils allaient arriver au pont. En chemin, l'idée lui était venue : il lancerait un caillou, et le diable n'aurait qu'à se faire voir ailleurs ! Il jubilait à l'idée, et alors qu'il se penchait pour attraper un caillou, fiout ! un trait noir passe devant lui, poursuivi par un renard. Le pauvre chat avait dû trouver la porte, et il se dirigeait droit vers l'autre rive du Naou !
 
-Alors l'homme attrape un caillou et le lance aussi fort qu'il pût de l'autre côté, mais il était trop tard. Le chat avait été plus rapide, et le diable lorgnait moqueur le long de l'eau. 
+Alors l'homme attrape un caillou et le lance aussi fort qu'il pût de l'autre côté, mais il était trop tard. Le chat avait été plus rapide, et le diable lorgnait moqueur le long de l'eau, tenant le félin entre ses mains. 
  	– Tu m'as bien dupé, hein ! cria-t-il, fou de rage.
 POC ! fit le caillou.
 Et le diable s'enfuit par la forêt, et jamais on ne le revit par ici.
