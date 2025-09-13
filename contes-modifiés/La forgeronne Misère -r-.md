@@ -53,13 +53,13 @@ Furieux comme tout, le Diable en sortant de la maison décida de se passer les n
 	– Brise-Fer, attaque ! Débarrasse nous de cette vermine !
 Le chien ne s'y reprit pas à deux fois, et, de nouveau humilié, le Diable s'en repartit en hurlant au martyr.
 
-Cinq années encore passèrent ; Misère avait réussi à réparer son soufflet ; Jean grandissait et continuait d'aller à l'école pour apprendre. La forgeronne travaillait durement du lever jusqu'au coucher du soleil, parfois plus. Les jours devenaient pénibles, son dos commençait à la faire souffrir, mais elle ne se plaignait pas. À cause du bourgmestre/intendant, son voisin bon-à-rien, le bourg se dépérissait encore plus. Les routes d'antan redevenaient pistes, les festivités s'amaigrissaient, les voyageurs contournaient le village, et les commerces fermaient. « Heureusement qu'il reste l'école » se disait Misère.
+Cinq années encore passèrent ; Misère avait réussi à réparer son soufflet ; Jean grandissait et continuait d'aller à l'école pour apprendre. La forgeronne travaillait durement du lever jusqu'au coucher du soleil, parfois plus. Les jours devenaient pénibles, son dos commençait à la faire souffrir, mais elle ne se plaignait pas. À cause du bourgmestre/intendant – son voisin bon-à-rien, le bourg se dépérissait encore plus. Les routes d'antan redevenaient pistes, les festivités s'amaigrissaient, les voyageurs contournaient le village, et les commerces fermaient. « Heureusement qu'il reste l'école » se disait Misère.
 
 Alors qu'elle martelait derrière l'enclume, elle vit un nuage de poussière se rapprocher, cachant le soleil couchant.
 	– Intendant, je suis là pour vous escorter ! Suivez moi gentiment, où mes porcelets vous prendront, dit le diable.
 	– Pas besoin de hurler mon brave, laissez moi sortir de ma robe de chambre et me changer en quelque chose de plus adéquat. Pendant ce temps, grignotez-donc ! J'ai ce magnifique pommier, je n'en aurai guère besoin là où je vais alors videz-le. Ses pommes sont délicieuses.
 	– N'allez pas me faire prier et ramenez m'en, dit-il à ses suivants. Je le garde à l'œil.
-Et les porcelets ne se firent pas prier, ils secouèrent tellement le pommier qu'ils le renversèrent, écrasant une partie de la barrière de Misère. Elle alla constater les dégâts, et avant qu'elle n'aie eu le temps de traverser le chemin pour toucher deux mots aux voisins, elle tombait nez-à-nez avec la troupe de porcelets au sol, le diable au milieu.
+Et les porcelets ne se firent pas prier, ils secouèrent tellement le pommier qu'ils le renversèrent, écrasant une partie de la clôture de Misère. Elle alla constater les dégâts, et avant qu'elle n'aie eu le temps de traverser le chemin pour toucher deux mots aux voisin, elle tombait nez-à-nez avec la troupe de porcelets au sol, le diable au milieu.
 	– Tiens donc, vous vous êtes trop gavés, idiots. Maintenant que votre panse est bien pleine, je vais vous fouetter et l'on verra si certains d'entre vous savent danser, ricana l'intendant.
 Et crac, crac et crac ! Le fouet claquait, encore et encore.
 	– Toi, forgeronne, va voir ailleurs si j'y suis ! Crac ! Et quant à toi, malheureux, que je ne te revoie pas avec ta cohorte porcine de sitôt.
@@ -69,10 +69,58 @@ Et crac, crac et crac ! Le fouet claquait, encore et encore.
 	– Ce n'est pas fini. Crac ! Tu feras de cette maison un château, et que mon office resplendisse de la lueur de 40.000 écus.
 Le diable claqua des doigts, et tout à coup un château s'élevait derrière le nouveau seigneur ; après quoi il s'arrêta de fouetter.
 
-Meurtri et de nouveau humilié, il déploya ses ailes et s'envola suivi de ses porcelets. Seulement voilà, ils étaient tellement alourdis que, épuisés par le vol, ils s'écrasèrent dans la bourgade, détruisant l'école au passage.
+Meurtri et de nouveau humilié, il déploya ses ailes et s'envola suivi de ses porcelets. Seulement voilà, ils étaient tellement alourdis que, épuisés par le vol, ils s'écrasèrent dans la bourgade accompagnés d'un bruit sourd.
 
-*Passe-partout accourt avec Jean sur son dos, et le carnet dans la mâchoire.
-Misère se met à comploter pour l'année d'après.*
+Misère reprenait ses esprits quand surgit par-dessus feu sa clôture Passe-Partout, le souffle court portant Jean sur le dos, et son carnet dans la mâchoire. Jean, couvert de terre et de poussière reprit ses esprits à ce moment-là.
+	– Mère ! L'école ! Le ciel nous est tombé sur la tête ! Heureusement que Passe-Partout m'a tiré de là, mais le carnet …
+Misère lui pointa du doigt la gueule du chien, avant de les prendre dans ses bras.
+	– C'est encore un coup du diable, mon fils. Et de son pareil le bourgmestre. Je ne saurais te dire lequel des deux est le plus méprisable. Dans cinq ans, le Malin reviendra ; le voisin voudra l'être plus, mais nous le serons plus encor ! Il suffit.
+
+La vie reprit alors son cours. La clôture fut réparée, mais la bourgade continua de dépérir. L'école fût reconstruite ailleurs, et le reste des habitants partait au fur et à mesure. Misère, subsistait en réparant les outils des journaliers et des voyageurs. Jean quant à lui, termina l'école à la maison grâce à son carnet, et apprenait le métier de sa mère le reste du temps. Et chaque soir, autour du souper, les deux se préparaient pour le jour fatidique où ils mettraient fin aux manigances des deux vilains. 
+
+Leur plan était simple : le carnet leur avait révélé que le diable ne pouvait faire de magie s'il n'était pas libre. Ils le piègeraient ainsi. Le seigneur leur voisin quand à lui, devait être pris par surprise pour éviter ses mauvais coups.
+
+Et le soir fatidique arriva.
+
+Le diable arrivait sur un grand cheval dont le galop sonnait comme le tonnerre. Arrivé devant le château, sans démonter, il hurla :
+	– Vaurien ! Descend de là et monte dans la cage que je t'ai fait porter. Si tu me fait répéter je claquerai des doigts, et je te le ferai regretter. Je ferai pleurer le sol, je ferai trébucher les arbres, et les enfants de tes enfants danseront sur les murs effondrés de ton château de pacotille !
+Misère et Jean tremblaient face à ses paroles, mais se tenaient prêts. Quelques instants plus tard – qui leur semblèrent une éternité – et le seigneur sortait, tout apprêté.
+	– C'est là bien des manières d'offrir l'hospitalité, vieil ami. Es-tu sûr de n'avoir guère de temps ? J'ai au coin de la cheminée un formidable troubadour qui chante si bien que même le gibier s'arrête pour l'écouter.
+	– Suffit de tes tours et prend donc place, s'impatienta le diable.
+Le seigneur s'était déjà retourné et fit appeler le troubadour. Alors, hors de lui, le diable claqua des doigts.
+C'est à ce moment que Misère et Jean bondirent hors du fossé d'où ils attendaient. Jean envoya un grand seau de métal, forgé par sa mère. La trajectoire était parfaite et se retrouva à faire un drôle de chapeau au diable. Pendant ce temps, Misère courait vers le seigneur, un grand sac de farine dans les mains. Et avant que quiconque ne puisse réagir :
+	– Brise-Fer, Passe-Partout ! siffla-t-elle.
+Et les chiens d'accourir. Le premier mordit la tête du Vilain si fort que le seau devint pour lui un masque grotesque. Le second quand à lui, surgit depuis les remparts et sauta sur le seigneur, l'aplatissant de tout son long. Misère le fourra dans le sac, et ils se mirent à trainer dans la boue les deux compères jusqu'à la forge. Et personne ne les entendit hurler à cause de la tempête ainsi provoquée.
+
+Une fois installés et ligotés à la forge, Misère leur lança :
+	– Je n'en peux plus de vos manigances. Toi, ordure, cracha-t-elle à son voisin. Tu as tout, et tu quémandes encore plus chaque jour sans jamais rien donner. Et quant à toi, pauvre sot, tu es tout puissant, maléfique, colérique, mais plus que benêt ! Il est temps pour vous de récolter ce que vous avez semé, ou de faire vos amendes.
+Et Misère et Jean commencèrent à les rosser. Crac, crac, crac ! Parfois, un coup tapait dans le seau et résonnait comme une enclume.
+	– Arrêtez, je vous en supplie, gémissait l'un. Je vous couvrirai d'argent, plaidait l'autre.
+	– Le bourg dépérit à cause de vos idioties ! Crac ! Un parasite, vous êtes ! Crac ! Un poison !
+Misère et Jean les rossèrent ainsi pendant un quart d'heure. Crac, crac, crac ! 
+	– Je vous ferai anoblir, geignait le premier. Je vous rendrai votre jeunesse, pleurnichait le second.
+	– Balivernes, racontez vos histoires à d'autres ! Crac ! Partout où vous passez, la misère s'abat.
+Ils ne s'arrêtaient pas.
+	– Mère, l'interrompit Jean. Et il pointait l'eau qui montait vers la forge.
+	– Ayez pitié Madame, nous ferons ce que vous voudrez. Pas vrai ? couina le seigneur en se tournant vers où il imaginait être le diable.
+	– Oui, par pitié, arrêtez ! Accordez-nous miséricorde ! Déclarez votre souhait et il sera exaucé !
+	– Vous répondrez à mon fils comme à moi ?
+	– Oui Madame !
+	– Alors je te fais confiance Jean, tu sais quoi faire.
+Et Jean qui s'était préparé pour ce moment sourit.
+	– Je souhaite que le seigneur retourne à la terre. Ses biens serviront à réparer le bourg, et il ne pourra plus jamais en garder. Il vivra aux côtés de ceux qu'il a méprisé, et subira les torts qu'il a causé.
+Le seigneur tremblait, les dents serrées.
+	– Quand à toi, diable. Tu feras cesser ce torrent, et les tempêtes. Que ta magie ne soit plus source de souffrance, et se disperse librement. Et surtout …
+	– Surtout ?
+	– Que l'on ne te voie plus jamais entre les deux Leyre. 
+	– …
+	– Je ne t'entend pas vilain.
+	– Ainsi soit-il, dit le diable, défait.
+
+L'eau s'arrêta alors juste au bord de la forge, le sol n'y était que flaques et lagunes. La magie, elle, s'échappa du diable et s'en alla un peu partout de par le monde. Quand ils se retournaient vers, le seigneur, on ne l'eût pas reconnu. Ses riches habits avaient laissé place à de simples habits de toile, et on l'entendait sangloter sous le sac.
+
+Chacun reprit ainsi sa vie, tel qu'annoncé par Jean. Le bourg fût réparé, mais ne retrouva jamais l'occupation d'antan. Le bourgmestre dût enfin découvrir le travail. Le diable quant à lui, ne se fît jamais revoir dans les parages. Sa magie par contre apparaît encore par moment. Surtout tous les cinq ans. Parce que le diable est un menteur.
+
 
 
 ## Plan

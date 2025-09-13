@@ -1,0 +1,1 @@
+Camp militaire instauré en plein milieu de plusieurs communes. Zone interdite au public où se font des essais militaires.
