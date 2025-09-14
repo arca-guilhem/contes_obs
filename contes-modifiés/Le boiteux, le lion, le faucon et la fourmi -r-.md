@@ -48,20 +48,20 @@ Le Boiteux dit alors :
 La jeune fille fit mine de réfléchir à son offre avant de répondre :
 	— Je veux bien, mais je ne sais si papa voudra t'accorder ma main.
 	— En la demandant, je le saurai bien, dit le Boiteux.
-	— Eh bien, tu reviendras ici jeudi prochain, je te donnerai un bel habit et tu iras faire ta demande. Et si jamais il te demande qui donc ose demander la main de sa fille, tu lui diras que c'est toi qui lui chante les si doux poèmes dont elle se pâme.
-Alors le jeudi suivant, le dernier de septembre, le Boiteux revint au château ; la princesse le fit habiller comme un grand seigneur, et il s'en alla trouver le roi.
+	— Eh bien, tu reviendras ici jeudi prochain, je te donnerai un bel habit et tu iras faire ta demande. Et si jamais il te demande qui donc ose demander la main de sa fille, tu lui diras que c'est toi qui lui chantes les si doux poèmes dont elle se pâme.
+Alors le jeudi suivant, le dernier de septembre, le Boiteux revint au château. La princesse le fit habiller comme un grand seigneur, et il s'en alla trouver le roi.
 	— Bonjour, sire le roi.
 	— Bonjour, Boiteux. Que voulais-tu donc ?
 	— Je viens vous demander votre fille en mariage.
-	— Tu est bien audacieux mon ami, qui es-tu donc pour en demander la main ?
-	— Je suis celui qui chante de si doux poèmes à votre fille. Je l'aime d'un amour pur, je vous conjure de m'accorder sa main. 
-	— Si j'avais su que je serai honoré de la présence d'un tel ménestrel en ce jour, j'aurai fait préparer un banquet. Accompagne moi donc célébrer ces fiançailles !
+	— Tu es bien audacieux mon ami, qui es-tu donc pour en demander la main ?
+	— Je suis celui qui chante de si doux poèmes à votre fille. Je l'aime d'un amour pur et vous conjure de m'accorder sa main. 
+	— Si j'avais su que je serai honoré de la présence d'un tel ménestrel en ce jour, j'aurais fait préparer un banquet. Accompagne-moi donc célébrer ces fiançailles !
 Le Boiteux, tout joyeux de voir sa demande acceptée, suivit donc le Roi jusqu'aux caves du château. Une fois arrivés, le Roi et le Boiteux partagèrent tout un tonnelet de grand cru, se soûlant toute la nuit durant, jusqu'à s'endormir au petit matin. La princesse, ayant attendu cet exact moment toute la soirée, ligota alors le Boiteux ivre.
-	— Voilà-donc une bonne chose de faite. Voyons voir s'il sait se transformer en poisson maintenant.
+	— Voilà donc une bonne chose de faite. Voyons voir s'il sait se transformer en poisson maintenant.
 Le vilain ronflait encore alors quand elle le traîna dans un tonneau percé, qu'elle envoya dégringoler jusque dans les douves.
 
 La jeune fille ne revit jamais le Boiteux, et vécu une longue vie heureuse. Bien que chaque fois qu'elle croisait une fourmi, entendait un faucon, ou apercevait l'image d'un lion, son cœur flanchait. Et lorsqu'elle devint reine à son tour, elle fit pêcher tous les poissons de la douve, juste au cas où.
 
 ___
 
-La morale s'il en faut une, c'est de ne pas abuser d'un don qu'on vous fait présent ; et surtout, surtout, de ne pas vous glisser dans un lit qui n'est pas le vôtre sans y être invité.
+La morale s'il en faut une, c'est de ne pas abuser d'un don qu'on vous fait présent ; et surtout, surtout, de ne pas vous glisser dans un lit qui n'est pas le vôtre sans y être invité. C'est tout de même incroyable de devoir vous dicter la dernière.

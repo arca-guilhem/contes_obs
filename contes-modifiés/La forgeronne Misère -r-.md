@@ -4,22 +4,23 @@ Il y avait une fois une forgeronne qui s'appelait Misère. Elle était pauvre, p
 	– Pour l'amour de Dieu, braves âmes, ne me donneriez-vous pas un peu de place à votre foyer, pour passer la nuit, avec un morcelet de pain, sans vous priver ?
 	– Entrez, pauvre homme, entrez, répondit aussitôt Misère, nous ferons toujours comme nous pourrons.
 Jean, son fils, n'était pas content ; il grondait entre ses dents :
-	– Vois-donc mère ! Ne sommes-nous pas assez misérables ? Je m'en doit aller mendier du pain de côté et d'autre, et maintenant l'on va héberger les passants !
-	– Bah ! répondit Misère, il faut avoir compassion. Quelques bouchées de plus ou de moins, que veux-tu que ce soit ! Apporte donc le peu qu'il y a. Et elle dit au mendiant :
+	– Vois-donc mère ! Ne sommes-nous pas assez misérables ? Je m'en dois aller mendier du pain de côté et d'autre, et maintenant l'on va héberger les passants !
+	– Bah ! répondit Misère. Il faut avoir compassion. Quelques bouchées de plus ou de moins, que veux-tu que ce soit ! Apporte donc le peu qu'il y a.
+Et elle dit au mendiant :
 	– Vous savez, celui qui est pauvre n'est pas riche. Il n'y aura pas grand'chose à mettre avec le pain, mais nous partagerons de bon cœur. Approchez-vous de l'âtre, vous êtes tout transi.
-Et elle le fit asseoir, jeta quelques bûchettes au feu, et quand le vieillard se fut bien réchauffé, elle le fit mettre à table à son côté sur l'escabelle, lui disant de manger, qu'il ne se privât point. Puis, quand ils eurent passé un moment à deviser, l'heure d'aller dormir arriva, la forgeronne et son fils dressèrent pour le pauvre homme une couche auprès du feu, de quoi passer la nuit aussi bien qu'il se pût, et il s'y étendit.
+Elle le fit asseoir, jeta quelques bûchettes au feu. Puis quand le vieillard se fut bien réchauffé, elle le fit mettre à table à son côté sur l'escabelle ; lui disant de manger, qu'il ne se privât point. Quand ils eurent passé un moment à deviser, l'heure d'aller dormir arriva. Alors la forgeronne et son fils dressèrent pour le pauvre homme une couche auprès du feu, de quoi passer la nuit aussi bien qu'il se pût, et il s'y étendit.
 Le lendemain matin, dès qu'il fit jour, le mendiant se leva et prit son bâton pour partir, mais au moment de passer le seuil, il dit à Misère :
 	– Misère, hier soir, avant de venir ici, j'allai frapper à la porte de ton riche voisin, le bourgmestre, mais il me repoussa sans me faire l'aumône ; toi, au contraire, qui as tant de mal à vivre, tu as été compatissante : tu ne le regretteras pas, car je suis le bon Dieu, et pour prix de cette bonne œuvre, je te permets de me demander trois choses. Quelles qu'elles soient, tu les auras.
-Alors Jean dit tout bas à Misère, en la poussant du coude :
-	– Mère, demande la richesse. Nous sommes si pauvres ! Que nous puissions au moins nous reposer les fin de semaines, et laisser après nous la misère !
+Alors Jean chuchota à Misère, en la poussant du coude :
+	– Mère, demande la richesse. Nous sommes si pauvres ! Que nous puissions au moins nous reposer les fins de semaines, et laisser après nous la misère !
 	– Laisse-moi réfléchir, répondit Misère.
 Et quand elle eut réfléchi un moment, elle dit au bon Dieu :
-	– L'on est bien seuls Jean et moi, un ami nous serait le bienvenu. Je souhaiterai un chien fidèle, qui puisse nous accompagner à jamais.
-Jean, entendant cela, pestait entre cuir et chair. Il dit à voix basse :
+	– L'on est bien seuls Jean et moi, un ami nous serait le bienvenu. Je souhaiterais un chien fidèle, qui puisse nous accompagner à jamais.
+Jean, entendant cela, pestait entre cuir et chair. Il glissa à voix basse :
 	– Quelle folie ! Nous sommes pauvres à jeter, qu'allons nous faire d'un chien ? On ne pourra pas même le nourrir ! Ne te valait-il pas mieux demander la richesse ?
 	– C'est à moi de répondre, dit Misère, je demande ce qu'il me plaît.
 Et elle réfléchit encore un moment et dit au bon Dieu :
-	– Je ne souhaite pas que le chien se sente seul et malheureux. Alors, je voudrais un autre chien qui lui tienne compagnie, et qui soie capable de nous défendre tous. 
+	– Je ne veux pas que le chien se sente seul et malheureux. Alors, je voudrais un autre chien qui lui tienne compagnie, et qui soit capable de nous défendre tous. 
 Pour le coup, le gosse ne tenait plus en place, et tirait la manche de sa mère.
 	– C'est à moi de répondre, dit Misère, je le fais comme il me convient.
 	– Mais à présent du moins, fais-nous donner la richesse, reprit Jean ; il ne te reste plus qu'une chose à demander.
@@ -27,7 +28,7 @@ Quand elle eut réfléchi de nouveau, Misère sorti d'un coffret un vieux livre 
 	– Je ne sais pas lire, mais qu'il n'en soit pas ainsi pour mon fils. Je voudrais qu'il sache lire, à l'instant, et que dans ce livre lui apparaisse la vérité.
 	– Ce sera comme tu l'as désiré, dit le bon Dieu. Tu auras un premier chien, Passe-Partout. Comme son nom l'indique, il peut se faufiler partout, ainsi il te suivra comme bon te semble, et te sera fidèle jusqu'au dernier souffle. Ensuite, tu auras aussi un second chien, Brise-Fer, et ce dernier accompagnera le premier, et saura vous défendre de ses crocs si puissants qu'ils briseront le fer. Enfin, Jean ton fils saura la lecture, et dans ce livre-là, il trouvera la vérité qu'il cherche. Adichats, Misère.
 
-Et il s'en alla. Et le fils secoua la tête en pensant à la vie de seigneur qui lui passait sous le nez. Misère le laissa se renfrogner et se mit à son travail.
+Et il s'en alla. Le fils pestait et secouait la tête en pensant à la vie de seigneur qui lui passait sous le nez. Misère le laissa se renfrogner et se mit à son travail.
 
 Au bout de quelques jours, alors qu'elle travaillait le fer devant sa porte, un homme costumé et apprêté que Misère n'avait jamais vu se présenta chez le bourgmestre son voisin. N'y faisant pas plus attention, elle se remit à son ouvrage quand soudain surgit un éclat de lumière rouge au travers des fenêtres entrouvertes de la maison d'en face. Après quoi le curieux bonhomme sortit en serrant la main de son voisin, qui lui, semblait heureux comme tout.
 
@@ -48,7 +49,8 @@ Furieux comme tout, le Diable en sortant de la maison décida de se passer les n
 	– Brise-Fer, attaque ! Débarrasse nous de cette vermine !
 Le chien ne s'y reprit pas à deux fois, et, de nouveau humilié, le Diable s'en repartit en hurlant au martyr.
 
-Cinq années encore passèrent ; Misère avait réussi à réparer son soufflet ; Jean grandissait et continuait d'aller à l'école pour apprendre. La forgeronne travaillait durement du lever jusqu'au coucher du soleil, parfois plus. Les jours devenaient pénibles, son dos commençait à la faire souffrir, mais elle ne se plaignait pas. À cause du bourgmestre/intendant – son voisin bon-à-rien, le bourg se dépérissait encore plus. Les routes d'antan redevenaient pistes, les festivités s'amaigrissaient, les voyageurs contournaient le village, et les commerces fermaient. « Heureusement qu'il reste l'école » se disait Misère.
+Cinq années encore passèrent. Misère avait réussi à réparer son soufflet. Jean grandissait et continuait d'aller à l'école pour apprendre. La forgeronne travaillait durement du lever jusqu'au coucher du soleil, parfois plus. Les jours devenaient pénibles, son dos commençait à la faire souffrir, mais elle ne se plaignait pas. À cause du bourgmestre/intendant – son voisin bon-à-rien, le bourg se dépérissait encore plus. Les routes d'antan redevenaient pistes, les festivités s'amaigrissaient, les voyageurs contournaient le village, et les commerces fermaient.
+*Heureusement qu'il reste l'école*, se disait Misère.
 
 Alors qu'elle martelait derrière l'enclume, elle vit un nuage de poussière se rapprocher, cachant le soleil couchant.
 	– Intendant, je suis là pour vous escorter ! Suivez moi gentiment, où mes porcelets vous prendront, dit le diable.
@@ -56,7 +58,7 @@ Alors qu'elle martelait derrière l'enclume, elle vit un nuage de poussière se 
 	– N'allez pas me faire prier et ramenez m'en, dit-il à ses suivants. Je le garde à l'œil.
 Et les porcelets ne se firent pas prier, ils secouèrent tellement le pommier qu'ils le renversèrent, écrasant une partie de la clôture de Misère. Elle alla constater les dégâts, et avant qu'elle n'aie eu le temps de traverser le chemin pour toucher deux mots aux voisin, elle tombait nez-à-nez avec la troupe de porcelets au sol, le diable au milieu.
 	– Tiens donc, vous vous êtes trop gavés, idiots. Maintenant que votre panse est bien pleine, je vais vous fouetter et l'on verra si certains d'entre vous savent danser, ricana l'intendant.
-Et crac, crac et crac ! Le fouet claquait, encore et encore.
+Crac, crac et crac ! Le fouet claquait, encore et encore.
 	– Toi, forgeronne, va voir ailleurs si j'y suis ! Crac ! Et quant à toi, malheureux, que je ne te revoie pas avec ta cohorte porcine de sitôt.
 	– Oui, oui, entendu ! gémit le vilain. Mais par pitié arrête de me fouetter !
 	– Pas avant que tu ne m'aies promis de me faire seigneur à la place du seigneur, et que tu me laisses tranquille pour cinq ans encore ! Crac ! 
@@ -75,34 +77,37 @@ La vie reprit alors son cours. La clôture fut réparée, mais la bourgade conti
 
 Leur plan était simple : le carnet leur avait révélé que le diable ne pouvait faire de magie s'il n'était pas libre. Ils le piègeraient ainsi. Le seigneur leur voisin quand à lui, devait être pris par surprise pour éviter ses mauvais coups.
 
-Et le soir fatidique arriva.
+Le soir fatidique arriva.
 
-Le diable arrivait sur un grand cheval dont le galop sonnait comme le tonnerre. Arrivé devant le château, sans démonter, il hurla :
-	– Vaurien ! Descend de là et monte dans la cage que je t'ai fait porter. Si tu me fait répéter je claquerai des doigts, et je te le ferai regretter. Je ferai pleurer le sol, je ferai trébucher les arbres, et les enfants de tes enfants danseront sur les murs effondrés de ton château de pacotille !
+Le diable apparu sur un grand cheval dont le galop sonnait comme le tonnerre. Arrivé devant le château, sans démonter, il hurla :
+	– Vaurien ! Descend de là et monte dans la cage que je t'ai fait porter. Si tu me fais répéter, je claquerai des doigts, et te le ferai regretter. Je ferai pleurer le sol, trébucher les arbres, et les enfants de tes enfants danseront sur les murs effondrés de ton château de pacotille !
 Misère et Jean tremblaient face à ses paroles, mais se tenaient prêts. Quelques instants plus tard – qui leur semblèrent une éternité – et le seigneur sortait, tout apprêté.
 	– C'est là bien des manières d'offrir l'hospitalité, vieil ami. Es-tu sûr de n'avoir guère de temps ? J'ai au coin de la cheminée un formidable troubadour qui chante si bien que même le gibier s'arrête pour l'écouter.
 	– Suffit de tes tours et prend donc place, s'impatienta le diable.
 Le seigneur s'était déjà retourné et fit appeler le troubadour. Alors, hors de lui, le diable claqua des doigts.
 C'est à ce moment que Misère et Jean bondirent hors du fossé d'où ils attendaient. Jean envoya un grand seau de métal, forgé par sa mère. La trajectoire était parfaite et se retrouva à faire un drôle de chapeau au diable. Pendant ce temps, Misère courait vers le seigneur, un grand sac de farine dans les mains. Et avant que quiconque ne puisse réagir :
 	– Brise-Fer, Passe-Partout ! siffla-t-elle.
-Et les chiens d'accourir. Le premier mordit la tête du Vilain si fort que le seau devint pour lui un masque grotesque. Le second quand à lui, surgit depuis les remparts et sauta sur le seigneur, l'aplatissant de tout son long. Misère le fourra dans le sac, et ils se mirent à trainer dans la boue les deux compères jusqu'à la forge. Et personne ne les entendit hurler à cause de la tempête ainsi provoquée.
+Et les chiens d'accourir. Le premier mordit la tête du Vilain si fort que le seau devint pour lui un masque grotesque. Le second quant à lui, surgit depuis les remparts et sauta sur le seigneur, l'aplatissant de tout son long. Misère le fourra dans le sac, et ils se mirent à trainer dans la boue les deux compères jusqu'à la forge. Personne ne les entendit hurler à cause de la tempête ainsi provoquée.
 
 Une fois installés et ligotés à la forge, Misère leur lança :
-	– Je n'en peux plus de vos manigances. Toi, ordure, cracha-t-elle à son voisin. Tu as tout, et tu quémandes encore plus chaque jour sans jamais rien donner. Et quant à toi, pauvre sot, tu es tout puissant, maléfique, colérique, mais plus que benêt ! Il est temps pour vous de récolter ce que vous avez semé, ou de faire vos amendes.
-Et Misère et Jean commencèrent à les rosser. Crac, crac, crac ! Parfois, un coup tapait dans le seau et résonnait comme une enclume.
-	– Arrêtez, je vous en supplie, gémissait l'un. Je vous couvrirai d'argent, plaidait l'autre.
+	– Je n'en peux plus de vos manigances. Toi, ordure, cracha-t-elle à son voisin. Tu as tout, et tu quémandes encore plus chaque jour sans jamais rien donner. Et quant à toi, pauvre sot, tu es tout-puissant, maléfique, colérique, mais plus que benêt ! Il est temps pour vous de récolter ce que vous avez semé, ou de faire vos amendes.
+Alors Misère et Jean commencèrent à les rosser. Crac, crac, crac ! Parfois, un coup tapait dans le seau qui résonnait comme une enclume.
+	– Arrêtez, je vous en supplie, gémissait l'un.
+	– Je vous couvrirai d'argent, plaidait l'autre.
 	– Le bourg dépérit à cause de vos idioties ! Crac ! Un parasite, vous êtes ! Crac ! Un poison !
 Misère et Jean les rossèrent ainsi pendant un quart d'heure. Crac, crac, crac ! 
-	– Je vous ferai anoblir, geignait le premier. Je vous rendrai votre jeunesse, pleurnichait le second.
+	– Je vous ferai anoblir, geignait le premier.
+	– Je vous rendrai votre jeunesse, pleurnichait le second.
 	– Balivernes, racontez vos histoires à d'autres ! Crac ! Partout où vous passez, la misère s'abat.
 Ils ne s'arrêtaient pas.
-	– Mère, l'interrompit Jean. Et il pointait l'eau qui montait vers la forge.
+	– Mère, l'interrompit Jean.
+Il pointait l'eau qui montait vers la forge.
 	– Ayez pitié Madame, nous ferons ce que vous voudrez. Pas vrai ? couina le seigneur en se tournant vers où il imaginait être le diable.
 	– Oui, par pitié, arrêtez ! Accordez-nous miséricorde ! Déclarez votre souhait et il sera exaucé !
 	– Vous répondrez à mon fils comme à moi ?
 	– Oui Madame !
-	– Alors je te fais confiance Jean, tu sais quoi faire.
-Et Jean qui s'était préparé pour ce moment sourit.
+	– Alors je te fais confiance Jean, je pense que tu sais quoi faire.
+Jean qui s'était préparé pour ce moment sourit.
 	– Je souhaite que le seigneur retourne à la terre. Ses biens serviront à réparer le bourg, et il ne pourra plus jamais en garder. Il vivra aux côtés de ceux qu'il a méprisé, et subira les torts qu'il a causé.
 Le seigneur tremblait, les dents serrées.
 	– Quand à toi, diable. Tu feras cesser ce torrent, et les tempêtes. Que ta magie ne soit plus source de souffrance, et se disperse librement. Et surtout …
