@@ -25,7 +25,7 @@ Et un brave quart d'heure après, ils étaient assis au cercle et ripaillaient h
 Alors l'inconnu enfourchait son vélo et les accompagnait. Une heure plus tard, force était de constater qu'il avait raison. Il y avait des arbres partout et c'était à n'en rien comprendre.
 	– C'est incroyable, tout a déjà repoussé !
 	– C'est peut-être ce qu'il se tramait l'autre jour ?
-Ils allèrent ainsi voir le bosquet qu'ils avaient oublié la semaine précédente, et effectivement, tout avait repoussé. Cependant, cette fois-ci, le bosquet était si dense qu'on y passerait pas une charrette.
+Ils allèrent ainsi voir le bosquet qu'ils avaient oublié la semaine précédente, et effectivement, tout avait repoussé. Cependant, cette fois-ci, le bosquet était si dense qu'on n'y passerait pas une charrette.
 	– Tiens-donc c'est curieux, remarqua l'un. De chaque souche il repousse deux troncs à chaque fois !
 	– Nous voilà riches messieurs ! célébra le chef. Ce soir, on célèbre !
 Et ils célébrèrent. Mais par la suite, ils coupaient chaque jour du bois, du bois, du bois. Le faisaient emmener à la scierie, et leurs poches s'alourdissaient de monnaie un peu plus chaque semaine. Ils coupaient tant, et les arbres poussaient si bien qu'on ne voyait plus de lumière sous la canopée, qu'ils devaient travailler à la lumière d'une lanterne.
@@ -83,7 +83,7 @@ Cette fois-ci, il y a de trop nombreuses morales pour que je vous les susurre. J
 - Saint-Eutrope, selon l'histoire, fût tué d'un coup de hache à la tête. On l'invoque quand on s'apprête à subir une opération à la tête. 
 
 
-
+___
 
 ## Synopsis
 
