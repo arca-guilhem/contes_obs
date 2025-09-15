@@ -13,13 +13,13 @@ Mais le besoin commandait et il accepta le marché. Alors, le diable lui donna u
 
 Quelques jours avant la noce, l'homme revenait de chez le boucher, et à la même croisée des chemins, entre Luxey et Sore, il croisa une vieille dame effondrée dans le fossé. Elle avait la mine grisâtre, alors il la ramena chez lui, au coin du feu pour qu'elle puisse reprendre des forces et ils la firent souper. Le lendemain matin, la vieille dame remerciait l'homme en lui promettant :
  	– Ce soir, je reviendrai vous faire un cadeau, il vous portera le bonheur.
-Et c'est ce qu'elle fit. Avant le coucher du soleil, elle arriva avec un chat noir comme la nuit, et elle le luit tendit.
+Et c'est ce qu'elle fit. Avant le coucher du soleil, elle arriva avec un chat noir comme la nuit, et elle le lui tendit.
   	– Il s'appelle Mandragot. Pensez à bien le nourrir, c'est important, et prenez soin de lui, il est craintif. Cela à part, c'est un brave animal. Vous verrez demain, vous serez tout heureux !
 Alors l'homme accepta ; un chat, se disait-il, pourquoi pas ?
 
 Vint l'heure du dîner, où il nourrit bien le chat. Puis il alla se coucher sans trouver le sommeil. Qu'allait-il bien passer en premier sur le pont du Naou ?
 
-Au petit matin, il se levait pour effectuer les derniers préparatifs quand il trébucha sur le chat qui dormait en boule, avec à ses pieds une bourse remplie d'écus !
+Au petit matin, il se levait pour effectuer les derniers préparatifs quand il trébucha sur le chat qui dormait en boule, avec à ses pattes une bourse remplie d'écus !
 
 Une bien belle nouvelle, la vieille dame devait avoir raison. Il lui donna à manger et parti faire ses affaires. Puis vint le soir, rebelotte et il ne trouvait toujours pas le sommeil. Qu'allait-il bien passer en premier sur le pont du Naou ?
 

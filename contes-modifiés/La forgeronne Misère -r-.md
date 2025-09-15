@@ -12,7 +12,7 @@ Elle le fit asseoir, jeta quelques bûchettes au feu. Puis quand le vieillard se
 Le lendemain matin, dès qu'il fit jour, le mendiant se leva et prit son bâton pour partir, mais au moment de passer le seuil, il dit à Misère :
 	– Misère, hier soir, avant de venir ici, j'allai frapper à la porte de ton riche voisin, le bourgmestre, mais il me repoussa sans me faire l'aumône ; toi, au contraire, qui as tant de mal à vivre, tu as été compatissante : tu ne le regretteras pas, car je suis le bon Dieu, et pour prix de cette bonne œuvre, je te permets de me demander trois choses. Quelles qu'elles soient, tu les auras.
 Alors Jean chuchota à Misère, en la poussant du coude :
-	– Mère, demande la richesse. Nous sommes si pauvres ! Que nous puissions au moins nous reposer les fins de semaines, et laisser après nous la misère !
+	– Mère, demande la richesse. Nous sommes si pauvres ! Que nous puissions au moins nous reposer les fins de semaine, et laisser après nous la misère !
 	– Laisse-moi réfléchir, répondit Misère.
 Et quand elle eut réfléchi un moment, elle dit au bon Dieu :
 	– L'on est bien seuls Jean et moi, un ami nous serait le bienvenu. Je souhaiterais un chien fidèle, qui puisse nous accompagner à jamais.
@@ -42,20 +42,20 @@ Les chiens jouant dans la cour et aboyant à un quelconque écureuil empêchère
 En suivant cela, l'on entendit le diable beugler comme un bœuf, en demandant pardon et grâce. Mais le voisin n'écoutait rien, il frappait comme le sourd qu'il était ; un coup n'attendait pas l'autre. Il répliqua quelques secondes plus tard, quand il fut hors d'haleine :
 	– Tu ne sortiras pas de là, fils de garce, que tu ne m'aies promis de me laisser vivre en paix pendant cinq ans encore, et de me donner de l'or et de l'argent à mon souhait, comme tu l'as fait jusqu'ici.
 	– Ainsi soit-il ! cria le diable, lâche-moi !
-	– Et parce que je le mérite bien, moi qui travaille si dur, tu me feras intendant du seigneur.
+	– Et parce que je le mérite bien – moi qui travaille si dur – tu me feras intendant du seigneur.
 	– Je te le promets ! Je te le promets ! hurla le diable, maintenant lâche-moi bien vite !
 Et le bourgmestre le délivra.
-Furieux comme tout, le Diable en sortant de la maison décida de se passer les nerfs sur quelque chose. Malheureusement pour Misère ce fût son atelier. Le vilain brûlait son soufflet et avant qu'il puisse ne faire plus de dégâts, elle siffla les chiens qui rappliquèrent :
+Furieux comme tout, le Diable en sortant de la maison décida de se passer les nerfs sur quelque chose. Malheureusement pour Misère, ce fût son atelier. Le vilain brûlait son soufflet et avant qu'il puisse ne faire plus de dégâts, elle siffla les chiens qui rappliquèrent :
 	– Brise-Fer, attaque ! Débarrasse nous de cette vermine !
 Le chien ne s'y reprit pas à deux fois, et, de nouveau humilié, le Diable s'en repartit en hurlant au martyr.
 
-Cinq années encore passèrent. Misère avait réussi à réparer son soufflet. Jean grandissait et continuait d'aller à l'école pour apprendre. La forgeronne travaillait durement du lever jusqu'au coucher du soleil, parfois plus. Les jours devenaient pénibles, son dos commençait à la faire souffrir, mais elle ne se plaignait pas. À cause du bourgmestre/intendant – son voisin bon-à-rien, le bourg se dépérissait encore plus. Les routes d'antan redevenaient pistes, les festivités s'amaigrissaient, les voyageurs contournaient le village, et les commerces fermaient.
+Cinq années encore passèrent. Misère avait réussi à réparer son soufflet. Jean grandissait et continuait d'aller à l'école pour apprendre. La forgeronne travaillait durement du lever jusqu'au coucher du soleil, parfois plus. Les jours devenaient pénibles, son dos commençait à la faire souffrir, mais elle ne se plaignait pas. À cause du bourgmestre/intendant – son voisin bon-à-rien – le bourg se dépérissait encore plus. Les routes d'antan redevenaient pistes, les festivités s'amaigrissaient, les voyageurs contournaient le village, et les commerces fermaient.
 *Heureusement qu'il reste l'école*, se disait Misère.
 
 Alors qu'elle martelait derrière l'enclume, elle vit un nuage de poussière se rapprocher, cachant le soleil couchant.
 	– Intendant, je suis là pour vous escorter ! Suivez moi gentiment, où mes porcelets vous prendront, dit le diable.
 	– Pas besoin de hurler mon brave, laissez moi sortir de ma robe de chambre et me changer en quelque chose de plus adéquat. Pendant ce temps, grignotez-donc ! J'ai ce magnifique pommier, je n'en aurai guère besoin là où je vais alors videz-le. Ses pommes sont délicieuses.
-	– N'allez pas me faire prier et ramenez m'en, dit-il à ses suivants. Je le garde à l'œil.
+	– N'allez pas me faire demander et ramenez m'en, dit-il à ses suivants. Je le garde à l'œil.
 Et les porcelets ne se firent pas prier, ils secouèrent tellement le pommier qu'ils le renversèrent, écrasant une partie de la clôture de Misère. Elle alla constater les dégâts, et avant qu'elle n'aie eu le temps de traverser le chemin pour toucher deux mots aux voisin, elle tombait nez-à-nez avec la troupe de porcelets au sol, le diable au milieu.
 	– Tiens donc, vous vous êtes trop gavés, idiots. Maintenant que votre panse est bien pleine, je vais vous fouetter et l'on verra si certains d'entre vous savent danser, ricana l'intendant.
 Crac, crac et crac ! Le fouet claquait, encore et encore.
