@@ -40,16 +40,60 @@ Quand il se fut habitué à la vie chez ses grands-parents, il finit par être m
 Et ça durait, encore et encore, mais Jan n'en avait que faire.
 *Cela reste bien mieux que vivre avec mon ours de géniteur.*
 
-Et l'enfant demeura chez eux pendant huit ans. Chaque jour il devenait plus fort et plus robuste. Au bout de huit ans, les grands-parents de Jan avaient passé leur dernier hiver, et il dut reprendre la ferme.
+Et l'enfant demeura chez eux pendant huit ans. Chaque jour il devenait plus fort et plus robuste. Au bout de huit ans, les grands-parents de Jan avaient passé leur dernier hiver, et il dut reprendre la ferme avec sa mère.
 
-*Il fait des trucs méga balèze pour le village, il creuse un puit en une matinée, il récupère la meule d'un moulin à eau asséché et il s'en sert à la main. il remonte la cloche de l'église tout seul, etc.*
+Alors il travaille. Il travaille les bêtes, le champ, les bâtiments et plus encore. Parfois, le bourgmestre lui demande des services car il le sait bien incliné. Un jour, on demande à Jan de creuser un puit. Il est fini dans la matinée. Le mois d'après, on lui demande de réparer la cloche de l'église qui menace de s'effondrer. Alors sous un bras il prend la cloche, et sous l'autre la charpente toute entière. La semaine qui suit c'est tout le moulin à eau qu'il doit déplacer car la rivière est asséchée. Cela ne lui prit que 2 voyages : un pour le moulin, l'autre pour le meunier.
 
-*Et un jour des gens brûlent sa maison. Alors il part se rafraichir les idées, et en passant par le pont, il tombe sur le Tac. Blablabla. Le pont se casse sous lui, il le répare et rentre chez lui.*
+Il avait beau travailler pour lui et pour le village du jour au matin, il entendait encore les gens ricaner quand ils le voyaient au marché. Personne ne lui laissait une chaise le soir, pour jouer aux cartes. Il alla donc en parler avec sa mère.
+	– J'en suis las, mère. Je m'efforce de faire le bien, d'aider les gens de ce village, et en retour je ne reçois que rires et doigts tendus. Que dois-je faire pour enfin rire avec eux, et voir à la place leurs mains se tendre ?
+	– Oh mon enfant, ils finiront bien par te voir comme l'un des leurs. Les braves gens craignent ce qu'ils ne connaissent pas, et jugent plus vite que ce qu'ils n'observent.
 
-Est-ce que les gens finirent par l'accepter ?
-Devrait-il partir ?
-C'est ok de laisser tomber les gens qui nous pèsent. 
-On ne kidnappe, ni ne séquestre personne, bien sûr.
+Et ainsi continua la vie, jusqu'au jour de la fête du village. Jan avait travaillé dur, tant et si bien qu'il arriva en retard pour rompre le pain avec les gens au bourg. Ils lui en tinrent rigueur.
+	– Il se croit meilleur que nous, l'animal ! lançait l'un.
+	– Pas même il ose montrer son museau ! enchaînait l'autre.
+Alors dans leur joyeuse ébriété, l'un d'entre eux eu une idée :
+	– Tiens, et si l'on allait lui apprendre les bonnes manières teh ! Il ne doit pas connaître le Tac, on va lui faire une jolie farce.
+	– Belle idée ça, pardi !
+Ils allaient voir Jan et lui dirent :
+	– Mon ami, toi qui est si fort, j'ai mon chevreau qui refuse de me suivre. Je m'en allait la porter au parc avant de venir à la fête, mais la sale bête ne voulait rien entendre. Saurais-tu m'aider ? dit le filou, alors que les autres rigolaient derrière Jan de l'Ours.
+	– Ne t'inquiète pas voisin, dis-moi où est la bête et je te la ramène dans l'instant.
+	– Elle est sur le pont entre ici et Sore, un peu avant Pirette.
+	– Ainsi soit-il, j'y vais de ce pas, répondit Jan en se mettant en route.
+
+Les méchants, eux, étaient déjà sur leurs bicyclettes. Ils pédalèrent à s'en tordre le cou pour arriver au pont avant Jan. À peine installés dans le fourré, ils le virent arriver. Sur le pont, comme ils l'avaient prévu, attendait bien la fourbe créature. Les types se gaussaient, et prenaient entre eux des paris sur ce qui allait suivre.
+
+*Voilà donc le chevreau* se disait Jan. *Dépêchons nous que la soupe m'attend.*
+Alors il mit le chevreau sous le bras et se mit en marche, mais plus il avançait, plus l'animal devenait lourd, lourd, lourd. Jan, le mit alors sur son épaule.
+	– En voici un sacré chevreau !
+Il était à la moitié du pont quand il commençait à avoir mal au dos.
+	– C'est curieux tout de même, dit il, en l'ajustant sur ses deux épaules.
+Dans le fourré, les types étaient ébahis et n'osaient plus piper mot.
+D'un pas ferme, Jan se remit en route, et au bout de quelque pas.
+
+CRAC.
+
+Le pont lâcha sous lui.
+Surpris et les pieds dans l'eau, il entendit derrière lui :
+	– Mais qui es-tu que je ne peux t'écraser ?!
+	– Moi ? Je suis Jan, mais tout le monde m'appelle Jan de l'Ours. Et toi, qui es-tu ?
+	– Eh bien je suis le Tac, et je suis mitigé. D'un côté, je me suis bien fait porter, mais de l'autre tu me laisse insatisfait. J'aurai bien voulu t'écraser.
+	– M'écraser ? Tu est une bien vilaine bête. Va-t'en voir ailleurs si j'y suis !
+Et avec ces paroles Jan envoya le Tac loin dans la forêt d'un seul lancer, et plus personne ne le revit jamais dans les parages.
+
+La suite de l'histoire on ne la connaît pas, personne ne l'a racontée. Mais ce qu'on sait, c'est qu'il reconstruit le pont dans la foulée ; et que de cette aventure, Jan de l'Ours garda une cicatrice, car le Tac a failli lui rompre les jarrets.
+
+Alors qu'arriva-t-il par la suite ? Est-ce que le jeune homme se fit accepter pour avoir débarrassé le village de cette bête ? Le craignirent-il, parce qu'il était fort comme un ours, ou parce qu'il était différent comme un ours ? Peut-être quitta-t-il le village, laissant derrière lui ces pauvres gens ingrats. À vous de me le dire …
+
+
+## Morale
+
+C'est ok de laisser tomber les gens qui nous pèsent, ou l'on risque de s'y casser le dos.
+Ne tentez pas de porter fardeau plus lourd que de raison, chacun a ses limites.
+C'est idiot de craindre l'autre parce qu'il semble différent, apprend d'abord à le connaître.
+
+Et enfin, pour les plus sots d'entre vous qui doivent l'entendre : on ne kidnappe, ni ne séquestre personne, bien sûr. Pas plus qu'on leur fait des enfants contre leur gré.
+
+
 
 
 ## Plan
