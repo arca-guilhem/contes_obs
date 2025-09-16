@@ -2,5 +2,3 @@
 * Dans un virage "dangereux"
 * Passe au dessus du Naou
 * Fin des travaux début Août
-
-lure2025_typography-for-videogames_
