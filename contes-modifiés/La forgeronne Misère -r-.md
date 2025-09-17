@@ -1,6 +1,6 @@
 ## Rédaction
 
-Il y avait une fois une forgeronne qui s'appelait Misère. Elle était pauvre, pauvre comme le chat du juge ! si pauvre, que pour arriver à vivre elle était parfois forcée d'envoyer son fils mendier, à défaut d'aller à l'école, faute de pain à la maison. Un soir d'hiver que Misère était assise au coin de son feu, attendant que le maigre souper finisse de mijoter, un vieux mendiant tout déguenillé vint heurter à la porte en disant :
+Il y avait une fois une forgeronne qui s'appelait Misère. Elle était pauvre, pauvre comme le chat du juge ! Si pauvre, que pour arriver à vivre elle était parfois forcée d'envoyer son fils mendier, à défaut d'aller à l'école, faute de pain à la maison. Un soir d'hiver que Misère était assise au coin de son feu, attendant que le maigre souper finisse de mijoter, un vieux mendiant tout déguenillé vint heurter à la porte en disant :
 	– Pour l'amour de Dieu, braves âmes, ne me donneriez-vous pas un peu de place à votre foyer, pour passer la nuit, avec un morcelet de pain, sans vous priver ?
 	– Entrez, pauvre homme, entrez, répondit aussitôt Misère, nous ferons toujours comme nous pourrons.
 Jean, son fils, n'était pas content ; il grondait entre ses dents :
