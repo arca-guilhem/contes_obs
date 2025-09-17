@@ -1,3 +1,4 @@
+## Conte 
 
 Il y avait une fois un homme qui était très pauvre, il devait bientôt marier sa fille et il était fort embarrassé. Il avait besoin d'argent pour faire les frais de la noce et il n'avait pas un sou en poche. Un soir qu'il s'en revenait de la scierie, il rencontra un homme qui l'attendait à la croisée des chemins. Cet homme s'avérait être le diable.
  	– Bonjour, monsieur, dit le pauvre homme.
@@ -36,27 +37,22 @@ Et le diable s'enfuit par la forêt, et jamais on ne le revit de ce côté des L
 
 ___
 
+## Morale
+
 S'il vous faut des morales, ce serait d'abord de ne pas faire de promesses en l'air. Ensuite de ne pas traiter avec de puissantes ordures. Et enfin, si ça vous est arrivé, c'est de bien penser à leur jeter quelques cailloux au passage !
 
 
 ___
 
-
 ## Notes de rédaction 
 
-1. Le conte original, mais tout pareil, sauf :
-2. Entre-temps, l'Homme aide une vieille dame qui lui offre un chat noir comme la nuit l'avant-veille des noces
-3. L'homme le nourrit et va dormir.
-4. Le lendemain, le chat revient avec un sac empli de pièces.
-5. L'Homme est ravi, le lendemain la même chose arrive. Il se dit, super j'enquête après le mariage
-6. Au moment du mariage, juste avant de traverser, l'Homme prend conscience du piège du diable, et se penche pour récupérer un caillou à lancer et piéger le Diable à son tour
-7. Le chat d'argent, file devant lui, poursuivi par un coq.
-8. Le diable ricane, au final l'Homme s'est fait avoir.
+Le conte original, mais tout pareil, sauf qu'il serait mélangé avec l'histoire du Chat d'argent (dit Mandragot) une légende gasconne (connue sous d'autres noms en Bretagne et Provence) d'un chat noir lié au sorcières, qui apporterai richesse à celui ou celle qui le traite bien (résumé très simplifié)
 
-
-
-Morales :
-- Ne pas faire d'affaires avec les ordures, on se fait toujours avoir.
-- Et quand on ne respecte pas, la première morale, faire comme l'Homme et leur envoyer des cailloux. 
-
-Anecdote : le chat noir s'appelle Mandragot
+2. Les premiers paragraphes
+3. Entre-temps, l'Homme aide une vieille dame qui lui offre un chat noir comme la nuit l'avant-veille des noces
+4. L'homme le nourrit et va dormir.
+5. Le lendemain, le chat revient avec un sac empli de pièces.
+6. L'Homme est ravi, le lendemain la même chose arrive. Il se dit, super j'enquête après le mariage
+7. Au moment du mariage, juste avant de traverser, l'Homme prend conscience du piège du diable, et se penche pour récupérer un caillou à lancer et piéger le Diable à son tour
+8. Le chat d'argent, file devant lui, poursuivi par un coq.
+9. Le diable ricane, au final l'Homme s'est fait avoir.

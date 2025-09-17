@@ -1,3 +1,6 @@
+
+## Conte
+
 Il y a des années, sur la lisière de la lande entre Callen et Captieux, on entendait toujours un coq chanter. 
 Un jour, trois bergers qui étaient assemblés dans un parc, le long du Peyronnet, l'entendirent. L'un d'eux s'écria :
 	– On ne voit dans cette direction que le ciel et la lande rase. Il n'y a ni un arbre, ni une maison à moins d'un jour de marche. Il faut savoir ce que cela signifie…
@@ -69,6 +72,8 @@ D'ailleurs, un chant funeste s'entend de nouveau vers le Camp du Poteau. Est-ce 
 
 ---
 
+## Morale
+
 Cette fois-ci, il y a de trop nombreuses morales pour que je vous les susurre. Je suis sûr que vous saurez en déceler certaines.
 
 ---
@@ -85,7 +90,7 @@ Cette fois-ci, il y a de trop nombreuses morales pour que je vous les susurre. J
 
 ___
 
-## Synopsis
+## Idée / Synopsis
 
 Réécriture autour d'une idée anticapitaliste.
 

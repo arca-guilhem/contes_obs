@@ -1,4 +1,3 @@
-
 ## Rédaction
 
 Une fois, un garçon revenait de l'école vers le Bourg-Vieux de Callen, à la tombée de la nuit. En arrivant au pont, près du ruisseau, il entendit bêler un chevreau derrière lui. Il était tout petit, pas plus grand qu'un cartable. Alors il le ramassa et le prit sur son dos. Mais que ce chevreau était lourd ! Et plus le garçon allait, plus l'animal se faisait pesant… Le jeune dut vite plier les jarrets.
@@ -8,7 +7,7 @@ Aussitôt le chevreau s'échappa en gambadant et en criant :
 
 Une autre fois c'était un fermier. Il vit un ânon qui avait du mal à traverser la rivière. Alors il le souleva pour le mettre dans sa charrette, et fit traverser ses chevaux à gué. Il allait arriver de l'autre côté qu'une roue s'enlisait, et que l'autre se brisa. 
 	– Diable ! Qu'est-ce donc là ?
-Il prit l'ânon pour le faire descendre, et se dernier s'alourdit si bien que le fermier se trouva le nez dans l'eau ! Et l'animal partait en moquant :
+Il prit l'ânon pour le faire descendre, et ce dernier s'alourdit si bien que le fermier se trouva le nez dans l'eau ! Et l'animal partait en moquant :
 	– Hi ! Ha ha ! Je me suis bien fait porter !
 
 Le Tac pouvait revêtir toute sorte de formes, tantôt le faon, tantôt l'agneau. Toute sorte de forme, sauf celle d'un pont : il n'avait pas ce pouvoir, car il aurait fait noyer trop de gens. Les choses en étaient venues au point qu'il faisait peur à tout le monde. À la tombée de la nuit, on n'osait plus passer au pont vers Pirette ; on préférait aller faire le tour par Luxey.
@@ -82,9 +81,9 @@ Suite à ces paroles, Jan envoya le Tac loin dans la forêt d'un seul lancer, et
 
 La suite de l'histoire on ne la connaît pas, personne ne l'a racontée. Mais ce qu'on sait, c'est qu'il reconstruit le pont dans la foulée ; et que de cette aventure, Jan de l'Ours garda une cicatrice, car le Tac faillit lui rompre les jarrets.
 
-Alors qu'arriva-t-il par la suite ? Est-ce que le jeune homme se fit accepter pour avoir débarrassé le village de cette bête ? Le craignirent-ils, parce qu'il était fort comme un ours, ou parce qu'il était différent … comme un ours ? Peut-être quitta-t-il le village, laissant derrière lui ces pauvres gens ingrats. À vous de me le dire …
+Alors qu'arriva-t-il par la suite ? Est-ce que le jeune homme se fit accepter pour avoir débarrassé le village de cette bête ? Le craignirent-ils, parce qu'il était fort comme un ours, ou parce qu'il était différent … comme un ours ? Peut-être quitta-t-il le village, laissant derrière lui ces pauvres gens ingrats. À vous de me le dire…
 
-
+____
 ## Morale
 
 C'est ok de laisser tomber les gens qui nous pèsent, ou l'on risque de s'y casser le dos.
@@ -94,7 +93,8 @@ C'est idiot de craindre l'autre parce qu'il semble différent, apprend d'abord �
 Et enfin, pour les plus sots d'entre vous qui doivent l'entendre : on ne kidnappe, ni ne séquestre personne, bien sûr. Pas plus qu'on leur fait des enfants contre leur gré.
 
 
-
+___
+___
 
 ## Plan
 

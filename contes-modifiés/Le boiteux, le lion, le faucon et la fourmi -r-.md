@@ -1,3 +1,6 @@
+
+## Récit
+
 Il était une fois un lion, un faucon et une fourmi qui chassaient de compagnie et avaient un mouton à partager. Comme ils étaient dans l'embarras, un boiteux vint à passer par là. Le lion appela :
 	— Hé ! Boiteux, viens ici, viens.
 Le Boiteux pensa alors : « Si tu y vas, tu es mort. Si tu n'y vas pas, c'est la même chose. Bah ! J'y vais  ».
@@ -63,5 +66,7 @@ Le vilain ronflait encore alors quand elle le traîna dans un tonneau percé, qu
 La jeune fille ne revit jamais le Boiteux, et vécu une longue vie heureuse. Bien que chaque fois qu'elle croisait une fourmi, entendait un faucon, ou apercevait l'image d'un lion, son cœur flanchait. Et lorsqu'elle devint reine à son tour, elle fit pêcher tous les poissons de la douve, juste au cas où.
 
 ___
+
+## Morale
 
 La morale s'il en faut une, c'est de ne pas abuser d'un don qu'on vous fait présent ; et surtout, surtout, de ne pas vous glisser dans un lit qui n'est pas le vôtre sans y être invité. C'est tout de même incroyable de devoir vous dicter la dernière.
