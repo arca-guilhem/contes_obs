@@ -70,3 +70,10 @@ ___
 ## Morale
 
 La morale s'il en faut une, c'est de ne pas abuser d'un don qu'on vous fait présent ; et surtout, surtout, de ne pas vous glisser dans un lit qui n'est pas le vôtre sans y être invité. C'est tout de même incroyable de devoir vous dicter la dernière.
+
+___
+
+## Notes
+
+CONTE ORIGINAL
+Cette réécriture est inspirée de la première partie du conte original. Elle se déroule de manière similaire, avec exception de la fin où la princesse accepte de se marier avec le boiteux. Dans la deuxième partie du conte, cette dernière est enlevée par un ogre quand elle l'accompagne à la chasse. Le boiteux part alors en quête de ce qui l'aidera à défaire l'ogre. Il utilisera notamment sa transformation en lion, qui n'est pas utilisée ici dans la première partie du récit.

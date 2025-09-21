@@ -18,10 +18,18 @@ ___
 Une morale ? Pourquoi pas ma foi !
 Tiens, tenez celle-ci : aidez pour la noblesse de l'acte, non pas celle de la récompense, vous en vivrez bien plus heureux.
 
-(gemmeurs : ceux qui récoltaient la sève des pins)
-(pitey : espèce d'échelle à jambe unique qui était utilisée par les gemmeurs)
-(hapchot : outil pour inciser l'écorce du pin)
 
+___
+
+## Notes
+
+1. Les gemmeurs étaient ceux qui récoltaient la résine des pins.
+2. Le pitey est espèce d'échelle à jambe unique qui était utilisée pour atteindre le haut des pins.
+3. L'hapchot est l'outil tranchant permettant d'entailler l'arbre, afin de faire couler la résine.
+
+CONTE ORIGINAL
+
+Le rossignol s'assoupit et se retrouve piégé par la vigne qui poussait bien vite. Sur le point de se faire dévorer, il est libéré par des bouviers. Maintenant il chante tout le temps pour s'empêcher de s'endormir.
 
 ___
 

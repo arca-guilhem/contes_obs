@@ -89,7 +89,7 @@ C'est à ce moment que Misère et Jean bondirent hors du fossé d'où ils attend
 	– Brise-Fer, Passe-Partout ! siffla-t-elle.
 Et les chiens d'accourir. Le premier mordit la tête du Vilain si fort que le seau devint pour lui un masque grotesque. Le second quant à lui, surgit depuis les remparts et sauta sur le seigneur, l'aplatissant de tout son long. Misère le fourra dans le sac, et ils se mirent à trainer dans la boue les deux compères jusqu'à la forge. Personne ne les entendit hurler à cause de la tempête ainsi provoquée.
 
-Une fois installés et ligotés à la forge, Misère leur lança :
+Une fois installés et enchaînés à la forge, Misère leur lança :
 	– Je n'en peux plus de vos manigances. Toi, ordure, cracha-t-elle à son voisin. Tu as tout, et tu quémandes encore plus chaque jour sans jamais rien donner. Et quant à toi, pauvre sot, tu es tout-puissant, maléfique, colérique, mais plus que benêt ! Il est temps pour vous de récolter ce que vous avez semé, ou de faire vos amendes.
 Alors Misère et Jean commencèrent à les rosser. Crac, crac, crac ! Parfois, un coup tapait dans le seau qui résonnait comme une enclume.
 	– Arrêtez, je vous en supplie, gémissait l'un.
@@ -133,6 +133,17 @@ Enfin : n’attendez pas que votre communauté meure pour la sauver.
 
 ___
 
+## Notes
+
+1. En 2020, le sud de la Gironde et le nord des Landes a connu des inondations conséquentes. Les nappes phréatiques s'étant rapidement remplies, c'était une inondation "par le bas". En voici une explication différente.
+2. L'ancien premier ministre et maire de Pau, François Bayrou a fait retaper la mairie de sa ville pour un total d'un peu plus de 4.5 millions d'euros. En 2025, il prône une politique d'austérité et de retenue financière chez les français ; avant d'utiliser 40.000€ d'argent public pour remettre à neuf son bureau.
+
+CONTE ORIGINAL
+Le conte original ne se focalise pas sur le voisin, ni sur ses enfants. Le forgeron Misère demande à l'origine des artefacts qui permettront de piéger des gens qui lui seraient hostiles : une chaise, un pommier et une bourse, chacun dont on ne peut sortir sans son accord. Quand le Diable passe le voir, il lui demande donc la richesse. Il le piègera ensuite 3 fois d'affilée en étant plus malin qui lui.
+
+Les chiens Passe-Partout et Brise-Fer viennent quant à eux du conte de La Bête à sept têtes – ainsi qu'une variante appelée Les Trois frères. Dans ces histoires, un homme pêche un poisson magique qui lui donne des instructions. Le pêcheur suit les instructions et en obtient trois fils. Pour chacun d'entre eux, un cheval et un chien, et un rosier qui faneraient s'ils étaient en danger. Quand ils ont grandi les fils partent à l'aventure, et leurs chiens permettent de les sauver de plusieurs péripéties.
+
+___
 ## Commentaires par rapport au conte original
 
 Change le genre de la protagoniste et enlève la compagne dépeinte comme hystérique et vénale

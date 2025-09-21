@@ -1,6 +1,6 @@
 ## Conte 
 
-Il y avait une fois un homme qui était très pauvre, il devait bientôt marier sa fille et il était fort embarrassé. Il avait besoin d'argent pour faire les frais de la noce et il n'avait pas un sou en poche. Un soir qu'il s'en revenait de la scierie, il rencontra un homme qui l'attendait à la croisée des chemins. Cet homme s'avérait être le diable.
+Il y avait une fois un homme qui était très pauvre, il devait bientôt marier sa fille et il était fort embarrassé. Il avait besoin d'argent pour faire les frais de la noce et il n'avait pas un sou en poche. Un soir qu'il s'en revenait de gemmer, il rencontra un homme qui l'attendait à la croisée des chemins. Cet homme s'avérait être le diable.
  	– Bonjour, monsieur, dit le pauvre homme.
  	– Bonjour, mon brave. Eh ! Tu as l'air bien ennuyé.
  	– Oh ! Oui, je le suis bien. J'ai ma fille qui va bientôt se marier, et je n'ai pas un sou pour faire quelque peu la fête le jour de la noce.
@@ -12,7 +12,7 @@ L'homme se prend à rêver : « Mais que feras-tu donc passer ce jour-là sur le
  
 Mais le besoin commandait et il accepta le marché. Alors, le diable lui donna un sac d'écus si pesant qu'à peine il pouvait le porter sur les épaules. L'homme s'en revint chez lui bien content. Ceux de sa famille firent de grandes invitations et préparèrent une belle noce.
 
-Quelques jours avant la noce, l'homme revenait de chez le boucher, et à la même croisée des chemins, entre Luxey et Sore, il croisa une vieille dame effondrée dans le fossé. Elle avait la mine grisâtre, alors il la ramena chez lui, au coin du feu pour qu'elle puisse reprendre des forces et ils la firent souper. Le lendemain matin, la vieille dame remerciait l'homme en lui promettant :
+Quelques jours avant la noce, l'homme revenait de chez le boucher, et à la même croisée des chemins, au bourg, il croisa une vieille dame effondrée dans le fossé. Elle avait la mine grisâtre, alors il la ramena chez lui, au coin du feu pour qu'elle puisse reprendre des forces et ils la firent souper. Le lendemain matin, la vieille dame remerciait l'homme en lui promettant :
  	– Ce soir, je reviendrai vous faire un cadeau, il vous portera le bonheur.
 Et c'est ce qu'elle fit. Avant le coucher du soleil, elle arriva avec un chat noir comme la nuit, et elle le lui tendit.
   	– Il s'appelle Mandragot. Pensez à bien le nourrir, c'est important, et prenez soin de lui, il est craintif. Cela à part, c'est un brave animal. Vous verrez demain, vous serez tout heureux !
@@ -44,7 +44,20 @@ S'il vous faut des morales, ce serait d'abord de ne pas faire de promesses en l'
 
 ___
 
-## Notes de rédaction 
+## Notes
+
+1. La rivière du Naou prend source à Lucmau, et va se jeter dans la Petite Leyre entre Callen, Sore et Luxey. Elle traverse la commune dans toute sa longueur.
+2. Dans des archives privées, on rapporte la mort par le froid d'une vieille dame de Luxey, dans l'hiver de 1840. Retrouvée dans un fossé, vers la croisée des routes de l'actuel bourg ; elle aurait quitté sa famille pour mendier car elle était une bouche de trop à nourrir.
+3. Les intersections sont souvent l'apanage du Malin dans les contes. Le Mandragot dans sa légende, se trouverait au croisement de 4 ou 5 chemins.
+
+CONTE ORIGINAL
+
+Dans le conte original, l'Homme ne retrouve pas de vieille dame. Il attrape donc la première chose qui lui passe sous la main – un chat – et l'envoie sur le pont pour piéger le Diable et sauver sa fille.
+
+La légende du Mandragot parle d'un chat – généralement noir – diabolique et paresseux qui apporterait la richesse à son maître. La manière dépend selon les versions racontées. En tout cas, il faut en prendre grand soin, car il peut prendre ombrage et chercher à se venger.
+
+___
+## Synopsis 
 
 Le conte original, mais tout pareil, sauf qu'il serait mélangé avec l'histoire du Chat d'argent (dit Mandragot) une légende gasconne (connue sous d'autres noms en Bretagne et Provence) d'un chat noir lié au sorcières, qui apporterai richesse à celui ou celle qui le traite bien (résumé très simplifié)
 

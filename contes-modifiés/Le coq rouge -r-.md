@@ -80,12 +80,14 @@ Cette fois-ci, il y a de trop nombreuses morales pour que je vous les susurre. J
 
 ## Notes
 
-- Le Peyronnet est un cours d'eau prenant naissance dans la zone d'essai militaire du Camp du Poteau, qui empiète notamment sur les communes de Callen, Captieux et Luxey.
-- Le bourg de Callen a été déplacé dans les années 1860. Le Camp du Poteau, lui, date de la fin de la Première Guerre Mondiale, en 1918. Le conte est donc anachronique, comme de nombreux contes avant lui.
-- Aujourd'hui, il n'y a plus de scierie dans les alentours de Callen.
-- Le coq rouge, dans l'histoire originale choisit les victimes qu'il attire. Ici, ce n'est pas clair. Qu'est-ce qui tue les pauvres gens ? Le coq rouge, les arbres magiques, leurs pairs… ?
-- La fontaine Saint-Eutrope de Callen se trouve sur les lieux de l'ancien bourg.
-- Saint-Eutrope, selon l'histoire, fut tué d'un coup de hache à la tête. On l'invoque quand on s'apprête à subir une opération à la tête. 
+1. Le Peyronnet est un cours d'eau prenant naissance dans la zone d'essai militaire du Camp du Poteau, qui empiète notamment sur les communes de Callen, Captieux et Luxey.
+2. Le bourg de Callen a été déplacé dans les années 1860. Le Camp du Poteau, lui, date de la fin de la Première Guerre Mondiale, en 1918. Le conte est donc anachronique.
+3. La fontaine Saint-Eutrope de Callen se trouve sur les lieux de l'ancien bourg.
+4. Saint-Eutrope, selon l'histoire, fut tué d'un coup de hache à la tête. On l'invoque quand on s'apprête à subir une opération à la tête.
+
+CONTE ORIGINAL
+
+Le chant du coq rouge envoûte ses victimes qu'il attire à lui, sans qu'elles ne puissent lui résister. Il choisirait apparemment ses victimes, mais on n'en sait pas les critères.
 
 
 ___
